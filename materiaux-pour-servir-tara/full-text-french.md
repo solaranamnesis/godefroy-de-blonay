@@ -50,4 +50,48 @@ G. B.
 
 ## Ouvrages cités.
 
+Aufrecht. --- _Catalogus Codicum sanscritorum bibliothecæ bodleianæ._ Oxonii, 1864.
+
+Balfour, Sr. G. Edw. --- _The Cyclopedia of India and of Eastern and Southern Asia._
+
+Barth. --- _Les religions de l'Inde._ Paris, 1876. Sandoz et Fischbacher.
+
+Barth. --- _Bulletin des religions de l'Inde_, dans _Revue de l'histoire des religions._ 1889.
+
+Bendall, Cecil. --- _A Journey of literacy and archæological researches in Nepal and Northern India._ Cambridge, 1886.
+
+Bendall, Cecil. --- _Catalogue of buddhist-sanscrit manuscripts in the university library of Cambridge._ Cambridge, 1886.
+
+Bhagvanlal Indraji. --- _Inscriptions from Nepal_ (_Indian Antiq._, vol. 9).
+
+Bühler. --- Voir _Indian Antiquary_, v. 2, p. 106.
+
+Burgess. --- _Elura Cave temples, Archæological Survey of Western India._ 1883.
+
+Burgess, voir Fergusson.
+
+Burnouf. --- _Introduction à l'Histoire du Bouddhisme indien._ Paris, 1844.
+
+_Catalogue of the sansc. Mss._, in the library of the India Office Part. 4, by Windisch and Eggeling. London, 1894.
+
+Cunningham. --- _Ancient Geography of India._ London, 1871.
+
+Cowell et Eggeling. --- _Catalogue of buddhist-sanscrit manuscripts in the possession of the Royal Asiatic Society_ (Hodgson Collection). _Journ. of R. A. S._, new series, t. 8.
+
+Csoma de Körös. _Analyse du Kandjour_, trad., L. Feer. _Annales du Musée Guimet._ T. 2.
+
+Dowson, J. --- _A classical Dictionary of Hindu mythology and history._ 1875. Trubner's Oriental Series.
+
+Edkins. --- _Chinese Buddhism._ London, 1880.
+
+Eitel, Ernest. --- _Handbook of Chinese buddhism._ London, 1888.
+
+Fergusson et Burgess. --- _The Cave Temples of India_, London, 1880.
+
+Fleet. --- _Corpus Inscriptionum Indicarum._ Calcutta, 1888.
+
+Fleet. --- V. _Indian Antiquary_, vol. 10. Bombay, 1881.
+
+Fujishima, Ryauon. --- _Deux chapitres extraits des Mémoires d'I-Tsing sur son voyage dans l'Inde, J. A._, 1888.
+
 ...
