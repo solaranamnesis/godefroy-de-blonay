@@ -286,4 +286,189 @@ Voici la traduction des trois lignes sanscrites qui encadrent l'image :
 
 L'épigraphie de Tārā est étroitement apparentée à sa littérature ; elle est dans l'une et dans l'autre la sauveuse par excellence, celle qui prend soin d'écarter de ses adeptes les craintes et les supplices ; elle occupe une place prépondérante à côté du Buddha qui lui doit sa sagesse, et dont elle est le principal ornement. Les vers sanscrits de l'inscription sont presque des citations de nos stotras, ou du moins ils les reflètent indirectement par l'intermédiaire d'une tradition précise et fidèle.
 
+Une inscription buddhique de Śrāvastī (Oudh), plus récente encore que celle de Daṃbal puisqu'elle date de l'an 1219 CE, contient une mention de Tārā qui suffit à prouver la persistance vivace de son culte.*
+
+*) _Indian Antiquary_, vol. 17, p. 62.
+
+La déesse est adorée en ces termes :
+
+l\. 2. Saṃsārāmbhodhitārāya tārām uttāralocanām | vande gīrvvāṇavāṇīnāṃ Bhāratīm adhidevatām. ||
+
+« Pour traverser l'océan des existences, j'adore la sauveuse Bhāratī, Tārā, qui a des yeux dont saillent les pupilles, la déesse souveraine des paroles des dieux. »
+
+Tārā est encore celle qui fait traverser et son nom conserve ici toute sa puissance étymologique.
+
+---
+
+# 3\. Les Images de Tārā.
+
+Les images de Tārā, identifiées jusqu'ici, sont peu nombreuses. Une enquête diligente permettra sans aucun doute d'en reconnaître bien davantage, même dans les monuments déjà explorés, et particulièrement (au témoignage de M. Waddell) dans le pays de Magadha.
+
+Près d'un temple Jaina, dans le fort de Daṃbal,* sur une tablette de pierre, outre l'inscription mentionnée plus haut se trouve une figure représentant Tārā, assise à l'intérieur d'une châsse, regardant devant elle, tenant dans sa main gauche un nymphéa épanoui et dans sa main droite un objet difficile à identifier. A la droite de la divinité, une vache et un veau ; le soleil au-dessus d'eux ; à gauche, une figure debout, les mains jointes sur le visage, en adoration, un nénuphar à huit pétales sur les mains, deux candélabres à mèches allumées derrière elle, et la lune au-dessus. L'image, en somme, ne présente pas de traits caractéristiques.
+
+*) V. Fleet. _Indian Antiquary_, v. 10, p. 185.
+
+A Buddha Gayā,* sur l'emplacement d'un temple voué à Tārā, on a trouvé une figure sculptée que Rājendralāla Mitra dit être Padmapāṇi, et qui ensuite passa pour une Tārā, lorsque le temple fut consacré au culte de cette divinité. Buchanan Hamilton* est d'accord pour constater que ce n'est pas du tout une image originale de Tārā, mais un personnage masculin.
+
+*) _Buddha Gayā_, par Rājendralāla Mitra. 1878, pl. 20, fig. 1.
+
+*) Même ouvrage, p. 60.
+
+A Ellora, Burgess* a constaté la présence d'une statue de Tārā, avec un lotus, au-dessous d'une niche.
+
+*) Burgess. _Ellora Cave Temples_, cave 12.
+
+Tāranātha* parle d'une statue d'elle, élevée par Vinītasena dans un temple, qui fut transportée à Devagiri par crainte des dégâts que commettaient les Turuṣkas.
+
+*) Tār., p. 160.
+
+Il semble que les diverses Tārās se distinguaient par la couleur. Chacune d'elles portait les couleurs de son Buddha respectif.*
+
+*) Voir Wright, _History of Nepal_, plate 5, p. 28. Kern, _Buddhismus_, vol. 2, p. 215-16. Hodgson, _J. R. A. S._, old s., v. 2, p. 319 et suiv.
+
+|               |                    |             |
+|---------------|--------------------|-------------|
+| Buddha:       | Tārā:              | Couleur:    |
+| Akṣobhya      | Locanā             | bleu        |
+| Ratnasaṃbhava | Māmakī ou Māmukī   | jaune ou or |
+| Vairocana     | Vajradhātvīśvarī   | blanc       |
+| Amitābha      | Pāṇḍarā ou Pāṇḍurā | rose, rouge |
+| Amoghasiddha  | Tārā*              | vert        |
+
+*) Voir le manuscrit add. 1476 (Dhāraṇīs) du catalogue de Cecil Bendall, qui contient p. 22 b. une Tārā dont la tête et les membres sont verts. Cette miniature fort belle est du 17e siècle.
+
+La position des mains varie aussi de l'une à l'autre.
+
+Le Népal, le Tibet et la Mongolie sont d'accord sur la répartition de ces couleurs, c'est surtout dans ces pays que les images des Dhyānibuddhas et de leurs Tārās ont été les plus nombreuses et les plus spécialement révérées.
+
+Au Tibet,* comme nous l'avons vu, on connaît deux Tārās : Dolkar et Doljang. On les représente toutes deux dans la même attitude ; le pied droit pendant devant le trône, la main droite tenant le lotus bleu. Leur teint est différent : Dolkar est blanche, Doljang est verte. Elles sont censées créées par le rayon bleu qui sortait de l'œil gauche d'Amitābha s'incarnant en elles.* Certaines représentations de Doljang montrent cet œil de sagesse dessiné dans la paume de ses mains et sous la plante de ses pieds ; ces marques ont même une ressemblance surprenante avec les stigmates chrétiens.* Le Musée Guimet* possède une statuette de bronze représentant Doljang ou Dolkar assise sur un lotus, la jambe droite pendante, coiffée d'une couronne.
+
+*) Schlagintweit. _Le Buddhisme au Thibet_, p. 42.
+
+*) Schlagintweit, p. 54.
+
+*) Schlagintweit, p. 138.
+
+*) Salle 2, vitrine 13, partie verticale, second rang (catal. p. 55).
+
+La Tārā japonaise tiendrait de très près à la Tārā tibétaine d'après le témoignage de M. Horiu Toki, fondée sur le Yoga-ghi-Ki. Elle serait verte mêlée de blanc, née des yeux de Kouan-in, elle se nomme aussi Fou-ghen, et fait partie du groupe de Kouan-in.
+
+En somme, à en juger sur ces indications trop rares, rien n'a distingué Tārā, au point de vue artistique, de bien d'autres figures féminines que l'art hindou a produites ; de même que la littérature l'a habillée non seulement de toutes les épithètes buddhiques en vogue, mais encore des qualités et attributs chers au panthéon brahmanique, de même il est difficile de croire qu'une forme extérieure bien arrêtée ait jamais été consacrée à Tārā.
+
+Dans le _Sragdharā Stotra_, quoiqu'au point de vue de la charité Tārā ne varie jamais, son apparence néanmoins revêt les aspects les plus divers ; on la voit les pieds illuminés de l'éblouissement de ceux qui l'adorent,* dorée comme le soleil levant,* courbant sous son poids les têtes d'Indra, Rudra et Brahmā, se tenir dans l'attitude de l'ālīḍha qui est une de celles du tireur d'arc, la jambe droite en avant, la gauche repliée* ; ou bien, emportée de colère* elle est revêtue d'armes étincelantes et des serpents affreux lui enserrent les bras, analogue à Kālī* ; ou bien, plus calme,* tous les personnages célestes et terrestres lui offrent leurs hommages et, conclut Sarvajñamitra, « la déesse pareille au cristal qui reflète tout ce qui l'entoure, à sa fantaisie se pare de la pourpre du soleil levant, plus rouge que la laque, d'une couleur sombre plus sombre que le saphir ou la feuille écrasée du lotus, d'un blanc plus blanc que le lait baratté de l'océan.* »
+
+*) _Srag._, vers 1.
+
+*) _Srag._, v. 5.
+
+*) _Srag._, v. 30.
+
+*) _Srag._, v. 31.
+
+*) Comp. Buchanan Hamilton. _Tantra Sāra. Transact. R. As. S._, 1, 45.
+
+*) _Srag._, v. 32.
+
+*) _Srag._, v. 33.
+
+Cette énumération de couleurs, d'accord avec les couleurs des Buddhas et des Tārās données plus haut pourrait n'être pas fantaisiste et tenir de la tradition ; le bleu, le blanc, le rouge y sont, manqueraient le jaune et le vert pour que la concordance fût complète, et encore le vert on le trouve à côté du bleu-saphir dans la poussière de la feuille du lotus, et l'or ou jaune est tout naturellement impliqué dans la comparaison avec le soleil.
+
+Dans la liste des _Cent huit noms d'Ārya Tārā_ comme dans toutes les énumérations de ce genre, Tārā* a mille bras, mille yeux, elle a le visage sombre et revêt toutes les formes.* Avec l'éclat du feu, elle a de grands yeux,* porte toutes les armes, s'orne de crânes* ... etc.
+
+*) _108 noms_, v. 26.
+
+*) _108 noms_, v. 28.
+
+*) _108 noms_, v. 34.
+
+*) _108 noms_, v. 37.
+
+Évidemment, ce qui ressort le plus clairement de nos hymnes, c'est le privilège qu'a Tārā de revêtir à son gré la forme extérieure qui lui convient, et n'est-ce pas là le privilège indispensable au rôle de charité universelle qu'elle joue* ? Elle est la _très bonne_. Elle paraît à l'upāsaka Śāntivarman sous la forme d'une vieille femme pour lui faire traverser un fleuve* : elle se dépouille de ses joyaux en faveur d'une pauvre vieille lorsque Candragomin* adresse une prière à l'image qui la représente et depuis lors la peinture resta sans bijoux.
+
+*) Voir : _Naipālīyadevatākalyāṇapañcaviṃśatikā_, v. 1 (Wilson, Works, vol. 2).
+
+*) Tār., p. 142.
+
+*) Tār., p. 157.
+
+---
+
+# 4\. Le Rôle de Tārā dans Tāranātha.
+
+Tāranātha, nous l'avons dit, nous fournit dans son _Histoire du Buddhisme_, les noms et l'histoire d'une série de fidèles de Tārā. Il faut les reprendre un à un pour suivre, d'après un ordre aussi chronologique que possible, le développement de ce culte au travers des cinquième, sixième, septième et huitième siècles de notre ère.
+
+Le premier personnage en date qui soit mentionné est l'ācārya Kāla* dont la personnalité est bien difficile à identifier au milieu du grand nombre de noms qui lui sont donnés* : Kāla, Mātṛceṭa,* Pitṛceṭa, Aśvaghoṣa, Durdharṣa, Durdharṣakāla, Dhārmika, Subhūti, Maticitra, Śūra.
+
+*) Tār., p. 89.
+
+*) Tār., p. 90 et Kern. _Buddhismus_, 7, 464.
+
+*) I-Tsing nous donne la transcription chinoise de ce nom : Mot'ch'a-li-tchi-tch'a dans le chap. 35 de l'_Histoire de la loi intérieure envoyée de la mer du Sud_. Voir Ryauon Fujishima. _J. As._, 1889, 2 chap. d'I-Tsing.
+
+Tāranātha place la vie de Kāla sous les règnes de Bindusāra* fils de Candragupta et de Śri Candra son successeur.* Kāla sacra roi Candanapāla et convertit le roi Kanika ( ? ).*
+
+*) Tār., p. 88.
+
+*) Tār., p. 89.
+
+*) Tār., p. 92.
+
+Kāla* ou Mātṛceṭa, car c'ast sous ces deux noms qu'il semble le plus connu, est petit-fils d'un marchand de la ville de Khorta qui avait dix filles fidèles à la loi du Buddha ; la dernière épousa un brahmane nommé Saṃghaguhya qui devint père de Kāla.* Kāla devint fort savant dans la connaissance des Vedas et des Vedāṅgas, il étudia ensuite les Tantras et les Mantras et devint un adversaire actif du buddhisme. Sa mère, restée attachée à la religion, l'envoya à Nālanda dans la persuasion qu'il s'y convertirait. Effectivement, arrivé dans le Magadha* il devint sthavira, apprit le Tripiṭaka et vit en songe* apparaître la vénérable Tārā qui l'invita à composer en l'honneur du Buddha toutes sortes de chants de louanges afin de se laver des péchés commis contre la religion. Il composa alors une centaine d'hymnes à Buddha et l'hymne en cent cinquante ślokas* qu'admirèrent Asaṅga et Vasubandhu et qu'on trouve dans le Tanjour attribué à Vāgbhaṭa, fils de Saṃghagupta* ; un nom de plus à ajouter à la liste de ceux de Kāla.*
+
+*) Tār., p. 90.
+
+*) D'ap. I-Tsing, _loc. cit._ Kāla renaît d'un rossignol qui avait entendu le Buddha.
+
+*) Nālanda, d'ap. Hiouen Tsang, a été fondé par Śakrāditya, _Vie de H. T._, p. 149.
+
+*) Tār., p. 91.
+
+*) _Śatapañcāśatika nāma Stotra_, v. Tanjour. b. 1.
+
+*) Tār., p. 311.
+
+*) Kāla mourut avant d'avoir achevé la rédaction du _Livre des dix-fois-dix naissances_ qui en resta à la trente-quatrième naissance, et qui serait contenu, d'après Schiefner, dans le Tanjour, sous le nom du _Buddhacaritamahākāvya_ d'Aśvaghoṣa (chin. : Ma-ming). Si c'est exact, Aśvaghoṣa ou notre Kāla serait le même dont parle la biographie chinoise de Vasubandhu, qui fut appelé au Kasmir pour écrire la Vibhāṣā, et qui fut enlevé du Magadha par le roi des Yue-Tchis. Wassilief. _Buddhismus_, p. 75.
+
+C'est lui peut-être aussi qui, sous le nom de Kṛṣṇa (le noir comme Kāla), aurait consacré Rāhulabhadra* son contemporain, l'un des fondateurs* du système naissant du Mahāyāna auquel se rattache déjà Kāla, avec un autre initiateur : Āryadeva, élève de Nāgārjuna.*
+
+*) Tār., p. 66.
+
+*) Wassilief, p. 219.
+
+*) Wassilief, p. 34.
+
+L'ācārya Rāhulabhadra,* contemporain de Kāla, plus jeune cependant que lui, est élève d'Āryadeva. Il vint à Nālanda lors du sacre de Candanapāla et fut lui-même alors consacré par Kāla* ou plus exactement Kṛṣṇa. Rāhulabhadra étudia les sūtras et les tantras du Mahāyāna et propagea la doctrine Mādhyamika.* Il succéda dans Nālanda à son maître Āryadeva.* Sa vie, nous dit Tāranātha, était racontée dans un ouvrage intitulé : _Biographie de Tārā_.* De cette mention, il semble logique de conclure que Rāhulabhadra a été spécialement lié au développement du culte de Tārā. Avant de mourir Āryadeva* transmit à son élève, à Raṅganātha près de Kāñcī « le grain du sens de l'enseignement ; » et c'est sous le nom de Śrī-Saraha que Rāhulabhadra succéda à son maître dans l'école mystique.* Le roi Śri Candra embellit Nālanda, alors que Rāhulabhadra y enseignait, de quatorze écoles et de quatorze promenoirs.
+
+*) Tār., p. 93.
+
+*) Tār., p. 66.
+
+*) Tār., p. 67.
+
+*) Wassilief, p. 221.
+
+*) Tār., p. 93.
+
+*) Tār., p. 68.
+
+*) Kern, 2, p. 500. Wassilief, p. 218 et suiv.
+
+Rāhulabhadra mourut dans le pays Dhiṅkoṭa après avoir vu la face du Buddha Amitābha. Bhagavat lui prédit qu'il serait dans un temps à venir le Tathāgata Saptaratnapadmavikramin.* Nous connaissons comme ses élèves sous le roi Buddhapakṣa et sous son successeur Karmacandra : Rāhulamitra et son disciple Nāgamitra, qui tous deux prirent une part active à la propagation du Mahāyāna ; Nāgārjuna, le fondateur de la doctrine Mādhyamika.
+
+*) _Lotus_, p. 133.
+
+Tārā avait aussi ses fidèles parmi les laïcs, témoin un certain Śāntivarman.* Revenant du Potala avec un exemplaire en huit parties de la _Pañcaviṃśatisāhasrikāprajñāpāramitā_ Śāntivarman fut rencontré par Vimuktasena, neveu de l'ācārya Buddhapālita, de l'école des Kaurukullakas,* et contemporain de Vasubandhu. Śāntivarman* avait été envoyé au mont Potala par le roi Śubhasāra à la suite d'un songe que ce dernier avait eu. Tārā lui vint en aide pendant son voyage sous la forme d'une vieille femme dirigeant une barque pour lui faire traverser un gouffre d'abord, puis un grand fleuve. Avec le secours de Tārā, Hayagrīva, Ekajāṭī, Amoghapāśa et autres, Śāntivarman réussit enfin dans son voyage, vit les dieux dans le Potala et revint auprès de Śubhāsāra qui en souvenir de ces incidents éleva le monastère Karṣāpaṇa vihāra. Un appela Śāntivārman l'homme aux mollets de fer à cause de ses longs voyages, car il en fit plusieurs autres encore.
+
+*) Tār., p. 141.
+
+*) Tār., p. 137-138.
+
+*) Tār., p. 142-143.
+
+Tārā intervient en sa faveur, nous venons de le voir, en lui faisant traverser les eaux. Nous allons constater bien des fois encore ce genre d'intervention.
+
+Ravigupta* qui mourut ainsi que Vimuktasena à l'époque du roi Bharṣa, fils de Siṃha, semble se rattacher à un mouvement spécial. C'était un bhikṣu thaumaturge comme Śāntideva et Sarvajñamitra plus tard au Kasmir, les contemporains aussi des magiciens Doṃbiheruka et Vajraghaṇṭa, qui ne sont malheureusement connus que par leur nom.* Tāranātha passe sommairement sur Ravigupta, disant que sa biographie est rapportée ailleurs ; cependant il témoigne que Ravigupta chercha à concilier les doctrines d'Ārya Nāgārjuna et d'Asaṅga.* Il fonda au Kasmir et dans le Magadha douze écoles et propagea le culte de Tārā qui se trouve, dès lors au moins, étroitement uni à la thaumaturgie.
+
+*) Tār., p. 147-148.
+
 ...
