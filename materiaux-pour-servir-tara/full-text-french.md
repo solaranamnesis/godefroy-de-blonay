@@ -12,15 +12,15 @@
 
 ---
 
-# [Bibliographie]()
+# [Bibliographie](#bibliographie-1)
 
-# [1\. Sources Littéraires.]()
+# [1\. Sources Littéraires.](#1-sources-littéraires-1)
 
-# [2\. Documents Épigraphiques.]()
+# [2\. Documents Épigraphiques.](#2-documents-épigraphiques-1)
 
-# [3\. Les Images de Tārā.]()
+# [3\. Les Images de Tārā.](#3-les-images-de-tārā-1)
 
-# [4\. Le Rôle de Tārā dans Tāranātha.]()
+# [4\. Le Rôle de Tārā dans Tāranātha.](#4-le-rôle-de-tārā-dans-tāranātha-1)
 
 ---
 
