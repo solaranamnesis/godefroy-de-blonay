@@ -471,4 +471,66 @@ Ravigupta* qui mourut ainsi que Vimuktasena à l'époque du roi Bharṣa, fils d
 
 *) Tār., p. 147-148.
 
+*) Tār., p. 170.
+
+*) Cf. Wassilief, p. 227, rem.
+
+Une colombe qui avait entendu Vasubandhu* renaquit, dans le sud du Daṇḍakāraṇya, sous la forme d'un fils de marchand ; ce fut l'ācārya Sthiramati. A l'âge de sept ans on l'envoya à Vasubandhu, de qui il apprit la sagesse sans peine. Un jour, comme il avait trouvé une pleine poignée de fèves et pensait à les manger, il estima qu'il ne serait pas convenable de le faire sans auparavant en offrir à la vénérable Tārā dont il y avait là un temple. Lorsque l'enfant eut donné à la statue quelques fèves, celles-ci roulèrent en bas ; il se dit que si la vénérable ne les voulait pas manger il ne pouvait non plus y goûter. Et comme il lui en offrait toujours et que celles-ci s'obstinaient à rouler à terre, l'enfant se prit à pleurer. La divinité lui apparut en face et lui dit : « Ne pleure pas, je te bénirai. » A ce moment se fit en lui la lumière, et la statue fut dès lors connue sous le nom de Māṣa Tārā (la Tārā aux fèves). Sthiramati est un des docteurs formés par Asaṅga et Vasubandhu.* Il commenta les œuvres de Vasubandhu et le Ratnakūṭa.* Sthiramati est le maître de Candragomin* et de Guṇamati. D'après Hiouen-Tsang, Sthiramati aurait vécu dans l'Ouest, dans le royaume de Valabhī.*
+
+*) Tār., p. 129.
+
+*) St. Julien, v. 3, p. 164.
+
+*) Kern, v. 2, p. 519, et Wassilief, p. 84-85.
+
+*) Tār., p. 150.
+
+*) St. Julien, v. 2, p. 46-164.
+
+Vinītasena,* contemporain du précédent et de Candragomin, nous est très peu connu, Tāranātha nous avertit qu'il n'en a pas trouvé de biographie détaillée. Elève de Prasena, il vivait au temps des rois Cala, Pañcamasiṃha, etc., et aurait élevé dans un temple une image à Ajitanātha. Cette divinité aurait exigé de Vinītasena qu'il élevât aussi une image à Tārā,* sa commère dans le salut des êtres. Vinītasena l'exécuta après avoir convié Candragomin. Détail intéressant, ces deux imagos, par crainte des Turuṣkas, furent transportées à Devagiri où elles se trouvaient encore du temps de Tāranātha.
+
+*) Tār., p. 159.
+
+*) Tār., p. 160.
+
+Candragomin* est le plus illustre personnage de l'époque qui se rattache au culte de Tārā, d'une façon même très intime, car c'est avec Sarvajñamitra celui dont Tāranātha raconte les aventures avec le plus de soin.
+
+*) Minayef a publié une étude sur Candragomin et ses œuvres. V. Bulletin de l'Acad. de Saint-Pétersbourg, v. 4, p. 294, dont on trouvera un résumé dans l'_Indian Antiquary_, octobre 1890, p. 319.
+
+Tāranātha mentionne Candragomin parmi les six joyaux du Jambudvīpa.* A la naissance de Candragomin, à Varendra, dans l'ouest,* se rattache une légende étrange, qui donne dès l'abord une couleur mystique à toute l'histoire de l'ācārya : Durant sept ans il ne parle point, et ne prend ensuite la parole que pour défendre la religion contre les attaques d'un maître Tīrthya.*
+
+*) Tār., p. 5.
+
+*) Tār., p. 148-149.
+
+*) Tār., p. 150.
+
+Candragomin est élève laïc de l'école d'Asaṅga* de Vasubandhu et de Sthiramati,* leur disciple. Aussi, il a brillé surtout dans le domaine de la grammaire et de la métrique. Il a écrit le _Candravyākaraṇa_, le _Sambaraviṃśaka_,* le _Tārāsādhanaśataka_, l'_Avalokiteśvarasādhanaśataka_ et beaucoup de śāstras.
+
+*) Kern, v. 2, p. 520.
+
+*) Tār., p. 150.
+
+*) Tār., p. 156.
+
+Infatigable défenseur de l'idéalisme d'Āryāsaṅga contre Candrakīrti qui suivait la doctrine de Buddhapālita* dont on le considérait comme une réincarnation, Candragomin finit probablemont par l'emporter après sept ans de lutte, ce que Wassilief conclut du fait que Candragomin resta à Nālanda, tandis que son adversaire s'en alla au sud dans le Konkan.*
+
+*) Tār., p. 153.
+
+*) Wassilief, p. 207-208.
+
+Candragomin est contemporain des rois Siṃha, Bharṣa et de Dharmapāla* ; il fut consacré par l'ācārya Aśoka.* Comme il récitait une formule magique, il vit face à face, dans le pays du roi Bharṣa, Ārya Avalokiteśvara et Tārā.* Ses succès dans le domaine de la métrique, de l'art et de la grammaire lui valurent la main de la fille du roi et une terre.* Comme une fois la servante de sa femme appelait cette dernière Tārā, l'ācārya trouva peu convenable que sa femme portât le nom d'une divinité protectrice et fut sur le point de se retirer dans un autre pays ; lorsque le roi eut appris la chose, il ordonna que, si l'ācārya ne voulait pas vivre avec sa fille on le mît dans une caisse et on le jetât dans le Gange. L'ordre ayant été exécuté, l'ācārya pria la très haute et très vénérable Tārā et fut poussé sur une île de l'Océan, à l'embouchure du Gange, magiquement créée par la divinité. Cette île reçut ensuite le nom de Candradvīpa, en souvenir de Candragomin. Séjournant dans cette île, l'ācārya érigea des statues de pierre à Avalokiteśvara et à Tārā. Peu après Candragomin alla à Nālanda où commença la lutte entre Candrakīrti et lui. Après que la lutte fut apaisée, grâce à l'intervention merveilleuse des divinités,* Candragomin, trouvant le śāstra _Samantabhadra_ de Candrakīrti de forme plus parfaite que son _Śabdasūtra_ qui devenait inutile, jeta son livre dans une source. Alors la vénérable Tārā lui dit : « Puisque tu as écrit cet ouvrage dans le bon but d'être utile aux autres, à l'avenir il sera pour les créatures intelligentes très utile, tandis que celui de Candrakīrti, qui est plein d'orgueil, sera de moindre utilité aux autres. C'est pourquoi retire ton œuvre de l'eau. » A la suite de cette prédiction, Candragomin sauva son ouvrage, et depuis lors quiconque boit de l'eau de cette source obtient une grande sagesse.
+
+*) Tār., p. 158.
+
+*) Tār., p. 150.
+
+*) Tār., p. 150.
+
+*) Tār., p. 150-151.
+
+*) Tār., p. 155.
+
+Tārā intervint encore plusieurs fois dans la carrière de Candragomin.
+
 ...
