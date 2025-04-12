@@ -12,6 +12,18 @@
 
 ---
 
+# [Bibliographie]()
+
+# [1\. Sources Littéraires.]()
+
+# [2\. Documents Épigraphiques.]()
+
+# [3\. Les Images de Tārā.]()
+
+# [4\. Le Rôle de Tārā dans Tāranātha.]()
+
+---
+
 Le présent travail a pour sujet la déesse buddhique Tārā. Jusqu'ici cette divinité n'était connue que par les rares mentions que lui accordaient les ouvrages généraux ; on savait aussi qu'un certain nombre d'hymnes adressés à cette divinité existaient en manuscrit dans les collections buddhiques.
 
 Je me suis proposé de coordonner les documents principaux que j'ai recueillis sur Tārā, afin qu'il fût possible de se rendre compte du rôle que cette divinité et son culte ont joue dans le buddhisme.
