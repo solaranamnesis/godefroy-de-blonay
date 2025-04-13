@@ -26,9 +26,9 @@
 
 # [6\. Introduction du Commentaire de Jinarakṣita.](#6-introduction-du-commentaire-de-jinarakṣita-1)
 
-## [6. addendum editoris : Devanāgarī (IAST, ISO 15919, Harvard-Kyoto).]()
+## [6. addendum editoris : Devanāgarī (IAST, ISO 15919, Harvard-Kyoto).](#6-addendum-editoris--devanāgarī-iast-iso-15919-harvard-kyoto-1)
 
-# [7. Traduction.]()
+# [7. Traduction.](#7-traduction-1)
 
 ...
 
