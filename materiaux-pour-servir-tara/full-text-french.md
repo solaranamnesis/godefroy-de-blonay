@@ -24,6 +24,8 @@
 
 # [5\. Textes.](#5-textes-1)
 
+# [6\. Introduction du Commentaire de Jinarakṣita.]()
+
 ---
 
 Le présent travail a pour sujet la déesse buddhique Tārā. Jusqu'ici cette divinité n'était connue que par les rares mentions que lui accordaient les ouvrages généraux ; on savait aussi qu'un certain nombre d'hymnes adressés à cette divinité existaient en manuscrit dans les collections buddhiques.
@@ -718,5 +720,94 @@ Le colophon de ce manuscrit nous fournit un renseignement précieux sur la valeu
 4\. Le quatrième texte qui a servi à établir la présente édition est dû aussi à la Société du Bengale ; copie m'en a été également envoyée (Catal. de Rājendralāla Mitra, p. 228). C'est un manuscrit de douze feuillets à huit lignes, il contient le texte des vers du _Sragdharā stotra_, plus un colophon.
 
 Parmi les manuscrits sanscrits offerts par Hodgson à l'India Office se trouvent deux _Sragdharā stotra_ (2743 _h_, 2743 _l_) dont je dois communication à l'amabilité du docteur Rost* :
+
+*) Voir _Catalogue of sanscrit manuscripts_, coll. by Hodgson. Trübner, 1881 (p. 11 : 2. 24 et 29).
+
+5\. Le manuscrit 2743 _l_ est de onze feuillets à cinq lignes, d'écriture incorrecte et souvent fautive. Il paraît n'être qu'un fragment d'un manuscrit plus considérable, car le premier feuillet est numé roté 33 et contient au recto un colophon qui appartenait à un texte du _Sragdharā stotra_ précédant immédiatement celui qui reste. Ce colophon ne présente d'autre intérêt que la date : saṃvat 771. (1651) et le nom d'un couvent : Cakravihāra. Les mots difficiles du texte sont expliqués par un synonyme ajouté sur le mot, soit entre les lignes, soit en marge. Le texte du premier feuillet est annoté à l'encre rouge.
+
+6\. Le manuscrit 2743 _h_ en très bel état contient dix-huit feuillets à cinq lignes. Il est écrit à l'encre d'or sur noir. Il offre de l'intérêt par son colophon qui donne une date nouvelle pour l'histoire du Népal et quelques noms jusqu'ici inconnus.*
+
+*) _J. A._ Janvier-février 1894, p. 183-4.
+
+J'ai relevé encore les textes suivants du _Sragdharā stotra_, que je n'ai pas consultés :
+
+7\. _Sragdharā stotra Tārābhaṭṭāraka_ avec commentaire, de trente-neuf feuillets à cinq lignes, n° 29 du catalogue de Cowell et Eggeling,* de la Royal Asiatic Society.
+
+*) Journal of R. A. S., new series, t. 8, p. 23.
+
+8\. Dans le n° 30 du même catalogue, intitulé _Stotra saṃgraha : Sragdharā stotra āryatārābhaṭṭārākaya_, dix feuillets.
+
+9\. _Sragdharā stotra_ : Université de Cambridge, add. 1104,* vingt-cinq feuillets à six lignes, date du 18e siècle.
+
+*) Cat. Cecil Bendall, p. 29.
+
+10\. _Sragdharā Stotra_, Cambridge, add. 1362,* avec commentaire, dix-huit feuilles de huit à onze lignes, daté de 1846.
+
+*) Cat. Cecil Bendall, p. 69.
+
+11\. _Sragdharā stuti_. Cambridge, add. 1272* avec commentaire, vingt-cinq feuilles, 5 lignes, daté de 1784.
+
+*) Cat. Cecil Bendall, p. 35.
+
+12\. Le texte du _Sragdharā stotra_ a été imprimé à Calcutta par Jībānanda Vidyāsāgara, sous ce titre : _Sragdharā stotram Sarvajñamitrapādaviracitam_, publié d'une façon tellement incorrecte qu'on en peut à peine tenir compte. (Je nomme ce texte J.)
+
+Pour l'édition du texte des _Cent huit noms de Tārā_ je me suis basé :
+
+1\. Sur le manuscrit de la Société asiatique (H. 9) (que je nomme **A**) :
+
+_Āryatārābhaṭṭārikāyānāmāṣṭottaraśataka_, comprenant le texte de cinquante-sept vers en huit feuillets de cinq lignes, en écriture devanāgarī du Népal correcte et très lisible. Ce manuscrit ne porte point de date.
+
+La stance que je numérote 10 _b_ y fait défaut; le copiste est néanmoins arrivé au nombre voulu de cinquante-sept stances en dédoublant à la fin du manuscrit la strophe cinquante-cinq. J'ai conservé la numérotation de ce manuscrit, le prenant pour type, tout en intercalant sous la rubrique 10 _b_ le vers manquant qui est donné par tous les autres textes consultés.
+
+2\. La bibliothèque de la Société asiatique possède un deuxième texte des _Cent huit noms de Tārā_ (que je nomme **B**) dans le manuscrit : _Stotras et dhāraṇīs_ (H. 14).* Au feuillet 145, ligne 4, commence notre texte complet, à peu près correct, jusqu'au feuillet 148, ligne 3. Le vers 10 _b_ s'y trouve.
+
+*) Voir _J. A._, série 9, tome 2, p. 371.
+
+3\. Jībānanda Vidyāsāgara a imprimé les _Cent huit noms de Tārā_ dans le même fascicule que le _Sragdharā stotra_ sous titre : _Tārāśatanāmāni_. Le texte est un peu moins incorrect que celui du _Sragdharā_ (je le nomme **C**).
+
+J'ai relevé les textes suivants que je n'ai pas consultés personnellement :
+
+4\. _Tārā Nāmāṣṭottara-śataka_, Université de Cambridge,* add. 1549, neuf feuillets, cinq lignes, daté de 1801.
+
+*) Bendall, p. 120.
+
+5\. _Ārya Tārābhaṭṭārikāyā nāmāṣṭottaraśatakaṃ_, Cambridge,* add. 1318, moderne.
+
+*) Bendall, p. 45.
+
+6\. Le manuscrit intitulé _Dhāraṇīs_, Cambridge,* add. 1476, qui date du 17e ou 18e siècle, contient les _Cent huit noms de Tārā_ sous titre : _Ārya Tārā Dhāraṇī_, du feuillet vingt-deux _b_, au feuillet vingt-neuf.
+
+*) Bendall, p. 105-106.
+
+La figure de Tārā mentionnée ci-dessus se trouve dans ce manuscrit qui, quoique incorrect, est luxueusement décoré de figures et de lettres dorées.
+
+7\. Nous trouvons le texte des _Cent huit noms de Tārā_ dans le catalogue des manuscrits offerts par Hodgson à l'India Office : add. 1549. Nāmāṣṭottaraśataka.*
+
+*) Voir p. 11, 2, n° 16.
+
+Pour établir le texte de l'_Ekaviṃśatistotra_, j'ai disposé des deux textes suivants :
+
+1\. _Ekaviṃśatistotraṃ_, man. n° 32 (_Tārāstotraṃ_), quatre feuillets de cinq lignes.*
+
+*) Voir Cowell et Eggeling. _J. of R. A. S._, n. s., t. 8, p. 25, et _Catalogue of sanscrit mss. collected by Hodgson_, p. 7 ; 1, 32.
+
+2\. Page 4 du manuscrit, add. 1551, Cambridge, intitulé _Dhāraṇīs_ sous titre : _Bhagavatyāryatārādevyā namaskāraikaviṃśatistotraṃ_.*
+
+*) M. le professeur Cowell a bien voulu faire pour moi la collation de ce manuscrit.
+
+---
+
+# 6\. Introduction du Commentaire de Jinarakṣita.
+
+**Oṃ namas Tārāyai**
+
+Natvāryatārāṃ jagadarthasārāṃ  
+dharmākarādhyeṣaṇayā samāsāt |  
+bālārkam atra karomi ṭīkāṃ  
+sphuṭāṃ ahaṃ śrījinarakṣitaḥ kṛtī||
+
+prabhūtavidveṣahutāśanāntaḥsphuracchikhādagdhamukhena hanta |  
+khalu tvayā satsukhadā mameyaṃ   
+ṭīkā nā dūṣyā tvayi me ñjaliś ca ||
 
 ...
