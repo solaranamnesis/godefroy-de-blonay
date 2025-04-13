@@ -545,4 +545,38 @@ Candragomin est contemporain des rois Siṃha, Bharṣa et de Dharmapāla* ; il 
 
 Tārā intervint encore plusieurs fois dans la carrière de Candragomin.
 
+Comme il faisait étudier à ses élèves ses nombreux ouvrages sur toutes sortes de sciences : la grammaire, la dialectique, la médecine, la métrique, la mimique, la lexicographie, la poésie, l'astronomie, etc., la déesse lui dit : « Lis le _Daśabhūmika_ et le _Candrapradīpa_, le _Gaṇḍālaṃkāra_, le _Laṅkāvatāra_ et la _Prajñāpāramitā_, qu'as-tu à t'occuper de métrique et à redresser ce qui est mal et contourné* ? »
+
+Une autrefois* une femme pauvre et vieille qui avait une fort belle fille et était réduite à mendier, renvoyée par Candrakīrti, s'adresse à Candragomin pour obtenir une aumône. Celui-ci, qui ne possède rien, se met en prière devant une riche peinture représentant Tārā et l'implore en pleurant ; Tārā apparaît elle-même, se dépouille de ses bijoux et les donne à l'ācārya qui en comble la vieille femme. Depuis lors l'image resta dépourvue de joyaux.
+
+*) Tār., p. 156.
+
+*) Tār., p. 156-157.
+
+Une dernière fois enfin, Tārā sauve la vie de son fidèle disciple à peu près dans les mêmes circonstances que jadis* : il allait à Potala et le nāga Śeṣa voulant venger d'anciens griefs éleva contre le vaisseau une énorme vague. Une voix crie : « Que Candragomin soit sauvé. » L'ācārya invoque sa sauveuse qui apparaît revêtue de ses cinq formes, assise sur Garuḍa dans les régions aériennes. Les nāgas terrifiés prennent la fuite et le vaisseau atteint sans encombre Dhanaśrī ; là, Candragomin fait une offrande, élève cent temples à Tārā et cent à Avalokiteśvara. Arrivé à Potala, il y vit encore sans avoir abandonné son enveloppe terrestre.
+
+*) Tār., p. 157.
+
+Peu après Candragomin, presque son contemporain, il faut citer l'auteur de notre _Sragdharā stotra_, Sarvajñamitra, comme un des plus notables adeptes de Tārā ; différents documents nous le font connaître.
+
+Nous apprenons par Tāranātha qu'il était élève de Guṇaprabha (mentionné par I-Tsing parmi ses contemporains*) et vivait au Kasmir tandis que régnaient le roi Cala à l'Ouest, et le roi Pañcamasiṃha, fils de Bharṣa, à l'Est et au Nord jusqu'au Tibet.*
+
+*) Au septième siècle ; cf. _Deux Chapitres extraits des Mémoires d'I-Tsing_, traduit par Ryauon Fujishima. _J. A._, 1888 2, p. 435.
+
+*) Tār., p. 158-159.
+
+Tāranātha nous raconte plus loin :
+
+Sarvajñamitra,* beau-fils d'un roi du Kasmir, fut pendant son enfance, comme il dormait un jour sur le toit de la maison, enlevé par un vautour et déposé dans le Madhyadeśa sur le faîte du temple Gandhola. Des pandits recueillirent l'enfant, le ranimèrent. Quand il fut devenu plus grand il devint très subtil et fut au nombre des bhikṣus possédant les Piṭakas, à Nālanda. Alors il s'attacha à la haute et vénérable Tārā, il la vit en réalité et obtint d'inépuisables richesses.
+
+*) Tār., p. 168.
+
+Sarvajñamitra fit des aumônes de tous ses biens, de sorte qu'il arriva qu'il n'avait plus rien à donner ; il s'en alla de son pays vers le Sud, afin de n'avoir pas à renvoyer les mains vides les nombreux mendiants qui ne manqueraient pas de venir. En route il rencontre un brahmane aveugle auquel un petit garçon sert de guide. Comme il lui demandait où il allait, le brahmane dit qu'à Śrī-Nālanda vivait Sarvajñamitra qui donnait satisfaction à tous les quêteurs ; c'est auprès de lui qu'il allait. Lorsque Sarvajñamitra lui eut dit que c'était lui en personne et que précisément il était arrivé à l'épuisement total de ses richesses, le brahmane fut accablé de douleur et une grande compassion s'empara de Sarvajñamitra. Ce dernier avait entendu dire qu'un roi nommé Saraṇa, adonné passionnément à des doctrines mauvaises et obéissant à un perfide ācārya, voulait acheter cent huit hommes pour les sacrifier dans le feu, afin d'obtenir une force surnaturelle et une grande puissance, et par là acquérir en partage la délivrance. Le roi avait trouvé cent sept hommes, il en restait donc un à acheter. L'ācārya pensa à se vendre lui-même afin de venir en aide au brahmane. Il dit au brahmane* : « Ne t'attriste pas, je vais trouver un expédient et revenir. » Arrivé à la ville, il demanda qui achetait des hommes ; le roi l'acheta et lui donna comme prix autant d'or qu'il pesait. Quand Sarvajñamitra eut donné l'or au brahmane celui-ci s'en alla satisfait, puis Sarvajñamitra fut mis dans la prison royale. Là, les hommes lui dirent : « Si tu n'étais pas venu nous aurions peut-être été sauvés, mais maintenant on va nous brûler, » et ils se laissèrent aller à une profonde tristesse. Le soir, les cent huit hommes furent placés, liés, sur un bûcher élevé au sommet d'une montagne. L'ācārya des hérétiques officiait, et lorsque tout le bûcher s'enflamma en craquant au feu, les cent sept hommes sanglotèrent bruyamment. Sarvajñamitra, pris de compassion, implora la vénérable Tārā. Celle-ci apparaissant fit jaillir de sa main un flot de nectar. Tandis qu'il ne pleuvait pas, là où se tenait le peuple, des flots de pluie s'abattaient sur l'emplacement où flambait le bûcher. Lorsque le feu s'éteignit un lac apparut. Le roi, frappé d'admiration, s'inclina plein de respect devant l'ācārya, et laissa aller les hommes après leur avoir donné une récompense. Quoique le roi témoignât beaucoup de respect à Sarvajñamitra, il ne se tourna cependant pas vers la vraie doctrine et ne répandit pas la Loi. Quand il se fut écoulé beaucoup de temps, l'ācārya fut très attristé et pria la vénérable Tārā de le reconduire dans sa patrie. Elle lui dit de saisir son vêtement et de fermer les yeux, puis de les rouvrir, et Sarvajñamitra* se trouva dans un endroit qu'il n'avait jamais encore vu, où était un très grand palais royal. Il demanda à la déesse pourquoi elle l'avait porté là et non pas à Nālanda ;--- celle-ci lui dit que c'était là précisément sa patrie. Sarvajñamitra resta dans cet endroit, éleva un grand temple à Tārā, enseigna très bien la Loi et conduisait tous les êtres au salut. Sarvajñamitra est élève de Ravigupta.
+
+*) Tār., p. 169.
+
+*) Tār., p. 170.
+
+En regard du récit très détaillé de Tāranātha nous pourrions placer l'introduction de la _Sragdharā Ṭīkā_ de Jinarakṣita, que nous donnons plus loin avec le texte et qui, chronologiquement, est bien plus proche de Sarvajñamitra que le récit postérieur de Tāranātha. On constatera le peu de différence qui existe entre les deux récits, à part la façon dont intervient Tārā dans le dénouement, et le nom du roi cruel que Jinarakṣita appelle Vajramukuṭa tandis que Tāranātha le nomme Saraṇa.
+
 ...
