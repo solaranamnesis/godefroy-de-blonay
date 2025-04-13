@@ -804,7 +804,7 @@ Pour établir le texte de l'_Ekaviṃśatistotra_, j'ai disposé des deux textes
 Natvāryatārāṃ jagadarthasārāṃ  
 dharmākarādhyeṣaṇayā samāsāt |  
 bālārkam atra karomi ṭīkāṃ  
-sphuṭāṃ ahaṃ śrījinarakṣitaḥ kṛtī||
+sphuṭāṃ ahaṃ śrījinarakṣitaḥ kṛtī ||
 
 prabhūtavidveṣahutāśanāntaḥsphuracchikhādagdhamukhena hanta |  
 khalu tvayā satsukhadā mameyaṃ   
