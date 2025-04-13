@@ -816,7 +816,7 @@ Tatra vṛttau upodghātam ādau prastūyate | iha kāśmīraviṣaye bodhisatva
 
 # 6. _addendum editoris_ : Devanāgarī ([IAST, ISO 15919, Harvard-Kyoto](https://arshavidya.org.uk/vyasa.html)).
 
-ओं नमस् तारायै
+**ओं नमस् तारायै**
 
 नत्वार्यतारां जगदर्थसारां  
 धर्माकराध्येषणया समासात् |  
