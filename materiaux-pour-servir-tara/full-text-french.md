@@ -853,6 +853,6 @@ Voilà le commencement de l'histoire ; comme elle est bien connue, nous ne la ra
 
 # 8\. Āryatārāsragdharāstotra.
 
-**Oṃ namo bhagavatyai Āryatārāyai.**
+**Om namo bhagavatyai Āryatārāyai.**
 
 ...
