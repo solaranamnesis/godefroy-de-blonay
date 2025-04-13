@@ -831,7 +831,7 @@ Tatra vṛttau upodghātam ādau prastūyate । iha kāśmīraviṣaye bodhisat
 
 # 7\. Traduction.
 
-Hommage à Tara !
+Hommage à Tārā !
 
 Ayant adoré Ārya Tārā, essence du bien du monde, en recherchant le principe de la loi en abrégé, je compose ce clair commentaire sur les vers bālārka, etc., moi, le bon Jinarakṣita. Toi, dont la bouche brûle des flammes étincelantes que jette le feu de la haine violente, ne maltraite pas ma glose qui procure le vrai bonheur ; à toi mon añjali.
 
