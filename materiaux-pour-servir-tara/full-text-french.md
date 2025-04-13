@@ -22,7 +22,7 @@
 
 # [4\. Le Rôle de Tārā dans Tāranātha.](#4-le-rôle-de-tārā-dans-tāranātha-1)
 
-# [5\. Textes.]()
+# [5\. Textes.](#5-textes-1)
 
 ---
 
