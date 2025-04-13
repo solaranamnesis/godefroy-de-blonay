@@ -22,6 +22,8 @@
 
 # [4\. Le Rôle de Tārā dans Tāranātha.](#4-le-rôle-de-tārā-dans-tāranātha-1)
 
+# [5\. Textes.]()
+
 ---
 
 Le présent travail a pour sujet la déesse buddhique Tārā. Jusqu'ici cette divinité n'était connue que par les rares mentions que lui accordaient les ouvrages généraux ; on savait aussi qu'un certain nombre d'hymnes adressés à cette divinité existaient en manuscrit dans les collections buddhiques.
@@ -578,5 +580,143 @@ Sarvajñamitra fit des aumônes de tous ses biens, de sorte qu'il arriva qu'il n
 *) Tār., p. 170.
 
 En regard du récit très détaillé de Tāranātha nous pourrions placer l'introduction de la _Sragdharā Ṭīkā_ de Jinarakṣita, que nous donnons plus loin avec le texte et qui, chronologiquement, est bien plus proche de Sarvajñamitra que le récit postérieur de Tāranātha. On constatera le peu de différence qui existe entre les deux récits, à part la façon dont intervient Tārā dans le dénouement, et le nom du roi cruel que Jinarakṣita appelle Vajramukuṭa tandis que Tāranātha le nomme Saraṇa.
+
+D'autre part, nous trouvons dans la _Rājataraṅgiṇī_* la mention suivante :
+
+« Le mendiant religieux Sarvajñamitra s'éleva dans ce couvent (de Kayya*) à la dignité de Jina. »
+
+*) _Rājataraṅgiṇī_, l. 4, v. 210.  
+śrīmān kayyavihāro'pi tenaiva vidadhe' dbhutaḥ |  
+bhikṣuḥ Sarvajñamitro'bhūt kramād yatra jinopamaḥ ||
+
+*) Ce couvent, avait été bâti par le roi de Lāṭa nommé Kayya, à une époque où nous voyons le buddhisme fleurir d'une façon très intense, si nous en croyons la _Rājataraṅgiṇī_.
+
+Or, cet événement se place sous le règne de Lalitāditya,* suivi de celui de Kuvalayāpīḍa,* qui ne régna qu'un an ; après lui régna Vajrāditya ou Vappiyaka, ou aussi Lalitāditya,* roi méchant et de mœurs cruelles* : « Il livra, en les vendant, un grand nombre d'hommes aux Mlecchas et fit régner dans le pays les coutumes propres aux Mlecchas. » Ces indications coïncideraient avec les grands traits du récit que nous étudions. Entre les noms de Vajramukuṭa du Stotra et Vajrāditya des annales du Kasmir il n'y a que la différence du deuxième élément du nom ; Vajrāditya aurait régné dans le courant du huitième siècle, et Sarvajñamitra, élève de Ravigupta* et de Guṇaprabha, se place vers la fin du septième et au commencement du huitième siècle.
+
+*) _Rājataraṅgiṇī_, l. 4, v. 126.
+
+*) _Rājataraṅgiṇī_, l. 4, v. 372.
+
+*) _Rājataraṅgiṇī_, l. 4, v. 393.
+
+*) _Rājataraṅgiṇī_, l. 4, v. 397.
+
+*) Tār., p. 170. Ravigupta est contemporain de Sukhadeva, élève de Candragomin.
+
+Śāntideva se rapproche beaucoup de Sarvajñamitra. L'auteur du _Bodhicaryāvatāra_ et celui du _Sragdharā Stotra_ sont contemporains. M. de la Vallée-Poussin* a déjà signalé la grande analogie de ces deux productions. Śāntideva n'est pas étranger à Tārā, Tāranātha nous dit de lui, après l'avoir mis au même rang que Candragomin, comme maître accomplissant des miracles* : « Il naquit dans le Saurāṣṭra, de famille royale. Dès son enfance, par la vertu de ses mérites, il jouit de la bienveillance de Mañjuśrī ; le dieu personnifiant la sagesse lui apparaissait en songe.* »
+
+*) _Le Muséon_, 1892, p. 109. Bodhicaryāvatāra.
+
+*) Tār., p. 103 et suiv.
+
+*) _Le Muséon_, p. 72-73, et Tār., p. 163.
+
+Devenu grand, la veille du jour où il devait être élevé au rang royal, Śāntideva vit pendant son sommeil Mañjuśrī assis sur le trône qui lui était destiné à lui. « Mon fils, dit le bodhisattva, ceci est mon siège, je suis ton ami spirituel, il n'est par conséquent pas convenable que toi et moi soyons assis sur le même trône. » Après que le bodhisattva eut ainsi parlé, Ārya Tārā revêtant la forme de la mère de Śāntideva l'aspergea du haut en bas d'eau brûlante. Śāntideva demanda ce que cela signifiait, elle dit : « La royauté est l'inépuisable eau bouillante de l'enfer, en l'acceptant, tu te destines à cette eau brûlante. » Śāntideva prit la fuite ce jour même. Après vingt et un jours (de fuite), comme il voulait boire d'une source qui se trouvait dans une forêt, une femme l'en empêcha, lui donna d'autre eau très douce, et le mena auprès d'un ascète, dans une caverne. L'ascète donna à Śāntideva la bonne direction. C'était Mañjuśrī, la femme était Tārā.*
+
+*) Tār., p. 164.
+
+Śāntideva devint dans la suite ministre de Pañcamasiṃha. Il possédait des vertus magiques extraordinaires et fut ordonné moine par Jayadeva. Il se rattache encore d'autres miracles à son histoire,* mais ce qui précède suffit à montrer combien l'histoire de Śāntideva, comme celle de Sarvajñamitra, est empreinte de merveilleux et le rattache au même mouvement.
+
+*) Tār., p. 165, 166, 167.
+
+Śāntideva se place donc comme Sarvajñamitra du septième au huitième siècle, un peu plus tard que Jayadeva, élève de Dharmapāla.*
+
+*) Dharmapāla est cité avec Guṇaprabha par I-Tsing entre ses contemporains. Cf. _Deux Chapitres_, etc., _loc. cit._
+
+Bhavabhadra, le sixième des douze tantrācāryas de Vikramaśīla entre Śrīdhara et Bhavyakīrti,* était très versé dans le système Nyāya. Il fut béni en songe par Cakrasambara et vit la face de Tārā. Il atteignit la siddhi.* Les ācāryas de Vikramaśīla,* à part les deux premiers, se succèdent de douze en douze ans ; le premier, Buddhajñānapāda est contemporain du roi Dharmapāla. Trente-six ans après lui vient Bhavabhadra, ce qui permet de le placer à peu près au commencement du huitième siècle.*
+
+*) Tār., p. 5, 6.
+
+*) Tār., p. 258, 259.
+
+*) Voici la liste des douze ācāryas de Vikramaśīlā d'ap. Tār., p. 257-260 :  
+Buddhajñānapāda.  
+Dīpaṃkarabhadra.  
+Laṅkājayabhadra.  
+Śrīdhāra.  
+Bhavabhadra.  
+Bhavyakīrti.  
+Līlāvajra.  
+Durjayacandra.  
+Kṛṣṇasamayavajra.  
+Tathāgatarakṣita.  
+Bodhibhadra.  
+Kamalarakṣita.
+
+*) Tāranātha (p. 225) place la mort de Mahīpāla 70 ans après la mort de Dharmapalā et la fait coïncider avec la mort du roi tibétain Kri-ral, à laquelle les Chinois (_Histoire des Thang_) assignent la date de 797 CE.
+
+A Vikramaśīla se rattache aussi Jinarakṣita, l'auteur d'un des commentaires du _Sragdharā_ (manuscrit C.) mentionné ailleurs. En effet, le colophon du manuscrit désigne ainsi ce personnage :
+
+« Śrīmadvikramaśīladevamahāvihārīyarājagurupaṇḍitabhikṣuśrījinarakṣitakṛtābālārkastutiṭīkā parisamāptā || »
+
+« Fin de la glose de l'hymne bālārkā ... etc., composée par Jinarakṣita le bhikṣu, savant, guru royal, du grand vihāra de Vikramaśīla. »
+
+Jetāri* est un peu mieux connu que Bhavabhadra. C'est le fils du brahmane buddhiste Garbhapāda et d'une femme que ce dernier avait reçue du roi Sanātana, régnant dans le Varendra. Il se rattache aussi des miracles à son enfance.* Jetāri devint un upāsaka (laïc) fort versé dans les écritures, les lettres et la métrique. Il s'aperçoit un jour qu'il a été incrédule, se repent et voit la face de Tārā qui lui dit que ses péchés seront rachetés s'il compose beaucoup de śāstras du Mahāyāna.* Jetāri est l'auteur du _Bodhipratideśanāvṛtti_ et du _Sugatamahāvibhaṅgakārikā_* (ces deux ouvrages se trouvent dans le Tanjour) de commentaires : du _Śikṣāsamuccaya_, du (_Bodhi_) _Caryāvatāra_ (de Śāntideva), de l'_Akāśagarbhasūtra_ et d'environ une centaine de sūtras. Au temps du roi Mahāpāla on lui donna une belle résidence à Vṛkṣapurī ; à Vikramaśīla, il reçut son diplôme de paṇḍit.*
+
+*) Tār., p. 230.
+
+*) Tār., p. 231.
+
+*) Tār., p. 232.
+
+*) Tār., p. 327.
+
+*) Tār., p. 233.
+
+Asvabhāva,* laïc, issu d'une famille de marchands, attaché au Mahāyāna, fit des miracles dans le pays de Kāmarūpa et vint à Hacipura où il expliquait le Nyāya-Madhyamika. On peut le dater du huitième siècle, car il fleurit à la mort de Dharmakīrti, quand Govicandra monte sur le trône.*
+
+*) Tār., p. 198, 199.
+
+*) Tār., p. 195.
+
+Tārā intervient miraculeusement en faveur d'Asvabhāva. Un serpent éveillé par son passage et celui de ses compagnons en dévore plusieurs, en mord un grand nombre, et ceux qui veulent fuir tombent étourdis par le poison de l'haleine du reptile. Alors le laïc s'adresse à Tārā et compose un hymne. Immédiatement le serpent venimeux ressent de violentes douleurs, rend deux de ses victimes et disparaît. Lorsque ceux qui avaient été dévorés, les blessés et ceux que le poison avait saisis eurent été aspergés d'une eau sur laquelle on avait récité un mantra à Tārā, le poison disparut et les hommes revinrent à la vie.*
+
+*) Tār., p. 198, 199.
+
+Une autre fois encore, que l'upāsaka était menacé par un serpent, il lui lança une fleur sur laquelle il avait récité un mantra à Tārā. Le serpent vomit beaucoup de perles dites sarvamukti devant l'ācārya et disparut.
+
+Asvabhāva avait le pouvoir, lorsqu'une forêt brûlait, d'éteindre l'incendie par la récitation d'un mantra à Tārā.
+
+Vāgīśvarakīrti* est le dernier des personnages mentionnés par Tāranātha qui semble avoir des attaches spéciales avec le culte de Tārā. Il vivait sous le règne du fils aîné du roi Caṇaka, Śreṣṭhapāla. Né à Vāraṇāsī de race kṣatriya, de l'école Mahāsāṃghika* il passa dans les ordres. Devenu très savant, dans tous les domaines, il voyait continuellement la face de Tārā et dissipait tous les doutes. Il alla à Nālanda, fut tantriste, et comme ses prédécesseurs accomplit différents actes merveilleux.
+
+*) Tār., p. 235.
+
+*) Tār., p. 236.
+
+Un jour* qu'il avait une conversation au sujet de la loi avec le bhikṣu Avadhūti, ce dernier cita l'_Āgama_ de Vasubandhu. Par plaisanterie Vāgīśvarakīrti se moqua de Vasubandhu. Le même soir sa langue enfla, et il ne pouvait plus enseigner la doctrine ; il resta ainsi plusieurs mois souffrant. Tārā, interrogée par lui, répondit que son mal venait de ce que par ses paroles il avait blessé (la mémoire de) Vasubandhu, il devait donc composer un hymne en l'honneur de cet illustre personnage. Ainsi fit-il, et la maladie disparut.
+
+*) Tār., p. 237.
+
+Vāgīśvarakīrti resta longtemps à Vikramaśīla, puis alla dans le Népal.
+
+Enfin, dans son quarante-troisième chapitre, où Tāranātha examine les sources du Mantrayāna,* il conclut :
+
+« Qui pourrait rapporter toutes les histoires des magiciens de l'Āryadeśa ? Rien qu'à l'époque de Nāgārjuna cinq mille personnes ont obtenu la siddhi grâce aux mantras de Tārā ; mais si l'on considère l'histoire de l'entourage de Dārika* et de Kālacārin on verra que leur nombre est incalculable. »
+
+*) Tār., p. 278.
+
+*) Dārika, qui aurait été avant sa vocation religieuse le roi de Śalaputra, paraît avoir été un magicien très puissant, contemporain de Heruka, d'origine indoue, éléve de Nāropa dont l'histoire est racontée dans le _Livre des 84 sorciers_. Il usurpa le trône royal dans le pays d'Oḍiviśa. Il se rattache à l'école de Lūjipa. Ce dernier est un clef d'école dont l'histoire mystérieuse ouvre le _Livre des 84 sorciers_. (Tār., 127, 249, 315, 319.)
+
+Si nous serrons de près l'étude des ācāryas auxquels le souvenir de Tārā reste attaché, nous constatons que nous nous trouvons en présence d'une suite de personnages qui se rattachent au Mantrayāna de beaucoup plus près qu'au Mahāyāna proprement dit : personnages dont la vie est fortement empreinte d'éléments merveilleux, thaumaturges mystiques, dont la puissance résidait dans la connaissance des formules magiques. Cette école était représentée par quelques noms restés célèbres. La tradition s'était transmise de Kāla et Rāhulabhadra jusqu'aux véritables magiciens Naropa, Dārika et Doṃbi, qui marquent l'apogée de ce mouvement. 
+
+---
+
+# 5\. Textes.
+
+Je me suis servi, pour la présente édition du _Sragdharā stotra_, des textes suivants :
+
+1\. Manuscrit de la bibliothèque de la Société asiatique : _Sragdharā stotra_ (H. 21), en vingt et un feuillets, de sept à huit lignes chacun et de trente-sept vers accompagnés d'un commentaire anonyme. Le manuscrit est en écriture devanagārī du Népal, peu régulière et incorrecte, le texte lui-même est très correct et demande extrêmement peu de modifications (je le nomme **A**).
+
+2\. La bibliothèque de la Société asiatique possède un deuxième texte du _Sragdharā stotra_ dans un volumineux manuscrit qui porte pour titre : _Stotras et dhāraṇīs_* (H. 14) et compte cent cinquante-six feuillets de six lignes. Le texte du _Sragdharā stotra_ se trouve du feuillet quatre-vingt _b_, ligne quatre, au feuillet quatre-vingt-cinq _a_, ligne trois, où est le colophon : ityāryatārābhaṭṭarikāyāḥ sragdharā stotra samāptaṃ. Le texte est incorrect et mal écrit (je le nomme **B**).
+
+*) Voir _J. A._, série 9, tome 2, p. 369.
+
+3\. Le troisième texte (que je nomme **C**) dont je disposais est dû à l'amabilité du secrétaire de l'Asiatic Society of Bengal, qui a bien voulu m'envoyer une copie de la _Sragdharāṭīkā_ de la Société (cat. de Rājendralāla Mitra, p. 229). Ce manuscrit, de cinquante-neuf feuillets à cinq lignes et cinq cent quatre-vingts ślokas, contient en introduction l'histoire de Sarvajñamitra, puis les trente-sept vers du _Sragdharā stotra_ avec le commentaire composé par Jinarakṣita (différent du commentaire anonyme de **A**).
+
+Le colophon de ce manuscrit nous fournit un renseignement précieux sur la valeur du commentaire.
+
+4\. Le quatrième texte qui a servi à établir la présente édition est dû aussi à la Société du Bengale ; copie m'en a été également envoyée (Catal. de Rājendralāla Mitra, p. 228). C'est un manuscrit de douze feuillets à huit lignes, il contient le texte des vers du _Sragdharā stotra_, plus un colophon.
+
+Parmi les manuscrits sanscrits offerts par Hodgson à l'India Office se trouvent deux _Sragdharā stotra_ (2743 _h_, 2743 _l_) dont je dois communication à l'amabilité du docteur Rost* :
 
 ...
