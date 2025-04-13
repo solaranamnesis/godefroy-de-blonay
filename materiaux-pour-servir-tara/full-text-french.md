@@ -30,7 +30,7 @@
 
 # [7\. Traduction.](#7-traduction-1)
 
-# [8\. Āryatārāsragdharāstotra.]()
+# [8\. Āryatārāsragdharāstotra.](#8-āryatārāsragdharāstotra-1)
 
 ...
 
