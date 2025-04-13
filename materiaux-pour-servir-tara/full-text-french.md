@@ -24,7 +24,7 @@
 
 # [5\. Textes.](#5-textes-1)
 
-# [6\. Introduction du Commentaire de Jinarakṣita.]()
+# [6\. Introduction du Commentaire de Jinarakṣita.](#6-introduction-du-commentaire-de-jinarakṣita-1)
 
 ---
 
