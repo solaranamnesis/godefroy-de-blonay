@@ -26,6 +26,12 @@
 
 # [6\. Introduction du Commentaire de Jinarakṣita.](#6-introduction-du-commentaire-de-jinarakṣita-1)
 
+## [6. addendum editoris : Devanāgarī (IAST, ISO 15919, Harvard-Kyoto).]()
+
+# [7. Traduction.]()
+
+...
+
 ---
 
 Le présent travail a pour sujet la déesse buddhique Tārā. Jusqu'ici cette divinité n'était connue que par les rares mentions que lui accordaient les ouvrages généraux ; on savait aussi qu'un certain nombre d'hymnes adressés à cette divinité existaient en manuscrit dans les collections buddhiques.
