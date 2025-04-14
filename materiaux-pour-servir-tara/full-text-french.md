@@ -859,11 +859,11 @@ Voilà le commencement de l'histoire ; comme elle est bien connue, nous ne la ra
 bhaktyā pādau tavārye karapuṭamukuṭātopabhugnottamāṅgas tāriṇy āpaccharaṇyair navanutikusumasragbhir abhyarcayāmi* ॥
 
 2\. --- Durlaṅghe duḥkhavahnau vinipatitatanur durbhagaḥ kāṃ-  
-&nbsp;[diśīkaḥ  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[diśīkaḥ  
 kiṃ kiṃ mūḍhaḥ karomīty asakṛd api kṛtārambhavaiyarthya-  
-&nbsp;[khinnaḥ ।  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[khinnaḥ ।  
 śrutvā bhūyaḥ parebhyaḥ kṣatanayana iva vyomni candrārka-  
-&nbsp;[lakṣmīm  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[lakṣmīm  
 ālokāśānibaddhaḥ paragatigamanas tvāṃ śraye pāpahantrīṃ ॥
 
 ...
