@@ -961,7 +961,7 @@ pathyaṃ glāne mariṣyaty api vipulakṛpaḥ kiṃ bhiṣag rorudhīti ॥
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[नादं  
 नार्हत्य् अन्यो प्य् उपेक्षां जननि जनयितुं किं पुनर् यादृशी  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[त्वम् ।  
-त्वत्तः पश्यन् परेषाम् अभिमतविभवप्रार्थनाः प्राप्तकामा  
+त्वत्तः पश्यन् परेषाम् अभिमतविभवप्रार्थनाः प्राप्तकामा*  
 दह्ये सह्येन भूयस्तरम् अरतिभुवा संततान्तर्ज्वरेण ॥
 
 *) Corr., ms. : °kamo.
@@ -969,7 +969,7 @@ pathyaṃ glāne mariṣyaty api vipulakṛpaḥ kiṃ bhiṣag rorudhīti ॥
 ८\. --- पापी यद्य् अस्मि कस्मात् त्वयि मम महती वर्धते  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[भक्तिर् एषा  
 श्रुत्या स्मृत्या च नाम्नो प्य् अपहरसि हठात् पापम् एका त्वम् एव ।  
-त्यक्तव्यापारभारा नुदसि मयि कथं कथ्यतां तथ्यकथ्ये  
+त्यक्तव्यापारभारा नुदसि मयि कथं कथ्यतां तथ्यकथ्ये*  
 पथ्यं ग्लाने मरिष्यत्य् अपि विपुलकृपः किं भिषग् रोरुधीति ॥
 
 *) _Tathyakathye_ mot nouveau : le commentaire explique : हे तथ्यकथ्ये हे सत्यवादिनि.
