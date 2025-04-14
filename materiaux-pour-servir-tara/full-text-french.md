@@ -1128,4 +1128,212 @@ bhūmer nirvāntacāmīkaranikaranidhīn nirddhanā prāpnuvanti ॥
 
 # 9\. Traduction.
 
+Om, Hommage à la vénérable Ārya Tārā.
+
+1\. --- Avec des louanges nouvelles en guise de guirlandes de fleurs, oh ! toi qui es un refuge dans le malheur, oh ! toi qui donnes le salut, oh ! Āryā, j'honore tes pieds, dévotement, la tête courbée sous l'éblouissement des diadèmes, les mains jointes en adoration, --- j'honore tes pieds qu'illumine comme d'une teinture laquée l'éclat de l'éblouissance des pierreries des aigrettes gracieuses sur les têtes des plus illustres divinités prosternées devant toi, dorées comme le soleil levant.
+
+2\. --- Dans la fournaise du malheur, rude à traverser, mon corps est tombé ; misérable, je ne sais où me diriger ; égaré, que fais-je ? que fais-je ? Constamment brisé par la non-réussite des entreprises tentées, j'entends les autres, et c'est comme si j'avais les yeux crevés, qui parlent de la beauté de la lune et du soleil, et l'espérance de voir m'enchaîne, et je suis obligé de me laisser guider par un autre ; je me réfugie vers toi, qui détruis le mal !
+
+3\. --- Oui, c'est sur le chemin de tous les êtres que ta compassion qui ne fait point de distinction s'étend et elle les embrasse tous. --- Je suis sûr d'être de ceux-là. --- Ta puissance sans seconde est le disque solaire des ténèbres que sont les péchés du monde entier. --- Je suis un misérable, moi aussi le péché que j'ai commis me brûle ;--- oh, malheur à ce félon !
+
+4\. --- Malheur, malheur à moi ! l'obscurité qui m'environne ne se dissipe même pas à l'éclat du soleil ; je reste altéré au bord de la rive de la fille d'Himavat, cette rive froide et rocheuse enfloconnée de neige, dans les cavernes de laquelle sont des pierreries précieuses en grand nombre, c'est le chemin de l'Île aux Perles. --- Pauvre moi, qui suis sans protecteur, quoique ayant choisi, ô divinité, ta seigneurie, qui est l'unique soutien de tous les mondes.
+
+5\. --- Une mère même se lasse, lorsque son fils pleure nombre de fois pour avoir du lait ; un père aussi s'irrite lorsque son fils demande chaque jour des choses qui ne sont pas ;--- mais toi, branche de l'arbre aux souhaits, qui donne pour fruits les désirs des trois mondes, tu donnes à tous ceux qui te prient des biens, et tu ne varies jamais.
+
+6\. --- « Celui dont le corps est brûlé par le feu des passions, je suis hi barque qui le sauve. » Réalise en ma faveur cette promesse que tu as révélée, car je plonge dans l'enfer du malheur. Quand croissent les flots du malheur, pour finir par de rudes insultes, tant que les mortels attachent leur pensée à la contemplation de la voie du parfait Buddha, aussi longtemps s'exerce pour eux ta compassion.
+
+7\. --- Si quelqu'un crie d'une voie forte, en élevant les bras, une clameur de détresse sous la forme de paroles louangeuses, personne ne doit rester indifférent ; combien plus une telle que toi, ô mère, --- quand je vois les autres obtenir de toi les biens qu'ils souhaitent et satisfaits dans tous leurs désirs, un feu intérieur que le déplaisir fait naître me trouble insupportablement.
+
+8\. --- Si je suis méchant, pourquoi ma dévotion envers toi va-t-elle toujours croissant ? Le seul fait d'entendre et de se rappeler ton nom fait que tu enlèves avec force le péché ; comment se fait-il, dis-le-moi, toi qui es toujours véridique, que tu me repousses, renonçant vis-à-vis de moi à ton action coutumière ? Est-ce que le médecin ému d'une grande compassion garde jalousement le remède approprié à la langueur du malade qui va mourir ?
+
+9\. --- Tiraillé soit en même temps, soit tour à tour par mes péchés vils, illusion, envie, orgueil, etc., comme le chameau du couvent dont les membres sont propriété commune à plusieurs, je n'obtiens pas d'adorer même un instant le lotus de tes pieds. Pour le faire, j'ai spécialement composé ces syllabes et ces mots qu'attriste mon malheur : puissent par là mes vœux n'être pas stériles !
+
+10\. --- Comme le vent des derniers temps du monde, l'ouragan entraîne avec grâce et violence l'eau, elle se soulève en vagues toutes coquettes d'allure qui courent avec la marée vers la rive et s'y brisent en un effroyable fracas, comme en un immense éclat de rire. --- Qu'ils t'appellent les naufragés dont la barque est mise en pièces, avec des cris, des pleurs, pitoyables, paralysés qu'ils sont par l'angoisse, et aussitôt, ô divinité, ta protection conduira aisément au rivage de l'océan ceux dont la ressource suprême est en ta puissance.
+
+11\. --- Hors des nuages errants de fumée se dégage, comme une retraite, une demeure céleste ; tandis que les étincelles crépitent et que les flammes jaillissantes augmentent l'horreur du feu dont l'ardeur pénètre la maison, ils trouvent comme un lit de repos, ceux qui te présentent comme un diadème le creux de leurs mains en adoration, qui te chantent leur invocation d'une voix entre-coupée ; parmi les jeux et les feux des éclairs, l'eau rapide des nuages leur apporte la joie au moment même.
+
+12\. --- Lorsque la liqueur du rut découle des deux tempes comme des flancs d'une montagne et que les essaims d'abeilles s'y attachent avec un bourdonnement qui affole l'éléphant ennemi et l'enflamme de fureur ; alors si l'éléphant du bout de ses défenses comme d'une haute balançoire soulève le corps de celui qui fixe sur toi sa méditation, la mort s'écarte de ton fidèle, et tout joyeux il se tient comme s'il était sur la tête même de l'éléphant, pareille avec son large sommet à une forteresse.
+
+13\. --- Dans la forêt déserte décorée en guise de lianes par les pieux auxquels sont empalées les têtes des hommes qu'ont frappés des traits violemment lancés, les brigands orgueilleux qui, pour se railler, tiraient l'épée du bout des doigts sont marqués comme esclaves, eux aux regards torves, aux sourcils froncés et tortueux, par le pinceau de la pensée qui tracé distinctement sans se lasser les syllabes du nom de ta splendeur et de ta majesté.
+
+14\. --- Il frappe comme un carreau de foudre, laboure de ses griffes les tempes des éléphants en troupe, et un sang épais ruisselle le long de sa puissante crinière partagée sur l'épaule ; tout proche et impatient de bondir, la gueule largement ouverte, ornée de dents aiguës, le lion, cet ennemi des gazelles, se détourne en tremblant et fuit devant l'homme qui prononce des mots de louange dignes de toi.
+
+15\. --- Des tourbillons de fumée obscurcissent la face hideuse d'innombrables serpents, qui sifflent ensemble ; leur gueule s'ouvre toute grande et montre une large langue ; c'est le lien dont le dieu avare Yama entoure pour le punir le pécheur, mais si sa pensée unique est l'énumération de tes vertus, si tu es son principal souci, il ne porte que guirlandes de fleurs de lotus et bracelets d'abeilles enivrées.
+
+16\. --- Les cheveux mal attachés, arrachés par les soldats du service royal rendus farouches et tremblants par les froncements de sourcil de leur maître, enlacé de nœuds de cordes blessants au milieu des cris excités que poussent les serviteurs bavards et agités, la gorge et les lèvres desséchées par la soif et la faim ; il se débarrasse de ces infinies calamités s'il se réfugie aux pieds protecteurs d'Ārya Tārā, quand ses parents même et ses amis l'auraient abandonné.
+
+17\. --- Quand les rakṣas habiles aux métamorphoses décevantes, peuvent changer de costume, prendre des formes menteuses, s'équiper d'armes dont le rayonnement épouvante et éblouit, celui qui se souvient alors des formules qu'on tire de ton Tantra, rien que par ce souvenir est délivré de son malheur et même ces monstres qui se parent de guirlandes d'entrailles de cadavres, servent de garde pour le défendre de tout mal.
+
+18\. --- Les corps des éléphants sont comme les nuages qui tonnent, les flots pressés du mada répandu sont comme les ténèbres, le rayonnement des armes fait une lueur d'éclairs, les flèches sont la pluie qui tombe sur le champ de bataille. A celui que cernent les ennemis acharnés aux bras d'une force extraordinaire tu donnes un accroissement de force, et devenu sans égal le héros réduit en poudre les ennemis avec fracas.
+
+19\. --- Ceux dont les membres sont couverts de blessures, dévorés de vers qui remuent dans les plaies béantes des veines attachées à la peau et aux chairs puantes de sang et de pus, dont l'infection dégoutte, châtiés par la maladie de leurs péchés passés ; ceux-là lorsqu'ils s'attachent dévotement à la pratique d'un remède de choix et salutaire, au culte de tes pieds, leur corps prend la beauté de l'or en fusion et leurs longs yeux sont des lotus.
+
+20\. --- Même quand, dans le vase de son oreille un précepteur n'a pas déposé l'aumône de la science ; même quand, l'ignorance le rend muet dans la société des savants ; passé maître de beau langage, il est revêtu de tous les ornements, de toutes les parures et de toutes les dignités ; il obtient à la cour des rois les trônes des gens éloquents, grâce à la puissance de la dévotion qu'il a pour toi.
+
+21\. --- Les membres mal couverts par des loques qui pendent à ses hanches, déchirées et sales de poussière à force de coucher sur le sol, écrasant ses poux vivants devant les demeures des autres, demandant à manger dans un tesson ; celui qui te gagne avec une ferme conviction gouverne une terre que rend aimable le sourire des jeunes beautés agitant le chasse-mouche, terre abondante en défenses d'éléphants enivrés de rut, et cet homme est abrité sous un parasol incomparable.
+
+22\. --- Ceux que lasse la constante recherche des moyens de trafiquer, de solliciter, de s'occuper, d'avoir une profession, de remplir un office ; qui n'obtiennent pas les richesses, fruits des mérites accumulés par les bonnes actions amassées durant les existences antérieures ; ces gens-là, s'ils te demandent la fortune, ô Mère des malheureux qui triomphes du destin, ils trouvent, eux les pauvres, des trésors de masses d'or vomi par la terre.
+
+23\. --- Celui qui se trouve sans moyens d'existence, sans plus savoir que faire, que sa femme dont les vêtements sont usés, menace ; que ses parents, ses amis, ses enfants et ses proches, même de loin évitent, par fierté ; un tel homme par le seul fait de te faire connaître sa misère, devient maître d'une maison dont les abords sont foulés par les sabots des chevaux et, dans son sommeil, seul le cliquetis des bracelets des femmes de son gynécée le réveille.
+
+24\. --- Pour que le disque pénètre de ses rayons le cercle de l'horizon, pour que la femme soit parée des signes de la beauté et irradie de tous côtés, pour que l'animal aux six défenses devienne le premier entre les éléphants, pour que le cheval de choix ait la robe sombre et luisante comme le plumage du cou du paon, pour que la pierre fine se purifie et brille comme le soleil, pour que le trésorier trouve son trésor comble, pour que le général d'armée dispose d'une multitude de héros, ô vénérable, il suffit d'une bribe de ta grâce.
+
+25\. --- A son gré, le roi des Vidyādharas rend les hommages sincères d'une hospitalité toujours renouvelée aux amantes dont le plaisir est de folâtrer en ces lieux où elles donnent des rendez-vous, sur ces roches de pierres précieuses parfumées de santal. C'est qu'il doit une magique puissance aux formules qu'il t'adresse ; lorsqu'il se rend à la forêt printanière du Malaya, comme des verrous l'enserrent de bracelets frémissants les bras tendus vers lui, gras, assombris par le reflet de ses armes.
+
+26\. --- Un collier bat leurs seins, leurs yeux allongés rivalisent avec le lotus qui orne leur oreille, de leurs tresses s'exhale une senteur fraîche, tresses fleuries de fleurs de _mandāra_ auxquelles s'enivrent les abeilles, le bruissement des anneaux de leurs pieds s'harmonise au cliquetis continu des ceintures, joyeuses d'excitation amoureuse et respectueuses aussi, elles, les vierges célestes sollicitent celui qui t'adore.
+
+27\. --- Là des guirlandes de pistils de diamants dans les lotus d'or, là des étangs dont les bords sont cachés par les pierreries, là se soulève en dais gracieux la poussière du pollen des fleurs de l'arbre _pārijāta_ qui s'élance dans les airs, là se donne un concert d'harmonie par les belles de la ville des immortels habiles à jouer de la flûte et du luth : c'est le jardin du Nandana, où celui qui se livre à ton culte goûte longtemps la joie d'être.
+
+28\. --- Dans la Mandākinī à l'onde parfumée par la poudre du nard, de l'agaru, et des écorces odorantes du giroflier, du cardamum et du camphrier, dont les vagues s'arrêtent en tourbillons dans le creux d'entre les seins que soulève l'excitation de l'ivresse amoureuse des amantes peu paresseuses au jeu do l'eau, ils folâtrent avec de belles femmes, ceux qui ont la puissance épanouie de leurs bonnes œuvres mûrie par l'attachement de leur cœur à toi.
+
+29\. --- Par les premiers des dieux, la tête inclinée sous le fardeau de la discipline, ses ordres sont honorés dans le sein du Svarga ; il est monté sur l'éléphant des dieux, dont les membres brillent de parures sonnantes ; il est enlacé par le balancement du collier des bras de Śacī : sur son corps ses poils frissonnent ; c'est que purifié par ton regard qui s'abaisse sur lui, il règne sur la terre des dieux et son avant-bras est encerclé de diamants.
+
+30\. --- Ta beauté s'épand dans le ciel où le Sugata est assis sur un siège que forme une couronne, par toi les trois mondes resplendissent de rayons plus brillants que des milliers de soleils levants dans leur fraîcheur ; Viṣṇu, Indra, Rudra et Brahma se courbent sous le faix de ton pas lorsque tu te tiens sur un pied dans l'attitude fière de l'_Ālīḍha_,* si dévotement elles honorent ta beauté, tu supprimes la crainte des renaissances pour les créatures.
+
+*) Ālīḍha. Position particulière de tir, la jambe droite en avant et la gauche repliée.
+
+31\. --- Il y en a qui te voient sous ton aspect furieux, alors que tu agites des armes étincelantes à tes bras tels que les troncs d'une forêt qui pénétreraient le milieu du ciel ; en guise de bracelets tes serpents aux aigrettes effroyables : c'est la forme que tu prends pour inspirer la peur. Les ennemis tremblent à ton rire bruyant qui est comme un tambour aux vibrations intenses au moment où elles éclatent ; et les vampires dressent leurs mains et les entrechoquent et font un tumulte d'ivresse folle et de joie bruyante qui fait frémir.*
+
+*) Le commentaire applique le vers 31 à l'aspect que Tārā revêt aux yeux des méchants, tandis que pour les pieux dévots elle est toute compassion.
+
+32\. --- D'autres te voient sous un autre aspect : dans l'intervalle de tes poils s'étendent et le vaste ciel et la surface de la terre, où demeurent en la béatitude Brahma, Indra, Rudra et le reste des dieux et des hommes, et les Maruts, et les Siddhas, et les Gandharvas, et les Nāgas. Le cercle de l'horizon est envahi par la splendeur de Buddhas que tu te plais à créer par centaines et sans fin, prodigieuse, digne des hommages des trois mondes, embrassant dans ta propre nature toutes les créatures tant mobiles qu'immobiles.
+
+33\. --- Il y en a qui te voient empourprée comme le rouge soleil aux rayons plus rouges encore que la laque et le sindūra, d'autres te voient sombre comme la poussière impalpable des éclats d'une pierre splendide de saphir opaque, d'autres encore te voient plus blanche que le lait baratté de l'Océan ou brillante comme l'or. Ta forme universelle est semblable au cristal qui change d'aspects quand les choses qui sont autour de lui changent.
+
+34\. --- Témoin unique de la vérité absolue qui peut être connue tout entière lorsqu'elle est éclairée par la lampe de l'omniscience, l'Omniscient ou son fils connaît par ses propres yeux le compte du nombre de tes qualités, mais tout ce qu'un homme comme moi en ouvrant toute grande la bouche peut faire entendre n'est que croassement de corneille, et cette misère est cause de ridicule pour mon esprit qui en souffre une fièvre de maux intenses.
+
+35\. --- Ce que je désire te faire connaître, tu le sais en détail déjà d'avance, mais la façon dont se fatigue extrêmement l'ignorant en s'exprimant à toi devient une cause de satisfaction pour lui ; comme en présence d'une mère affectueuse alors même qu'elle sait tout déjà, le malheureux qui vomit sa douleur comme un poison obtient le bien-être.
+
+36\. --- O toi qui es le croissant de lune manifesté sur l'océan de la joie du bien, donne-nous ta vue rafraîchissante, fais-nous croître par l'enseignement de la science, ô toi dont la compassion est intense, dissipe l'obscurité intérieure ; j'ai purifié mon cœur dans l'eau lustrale de ta louange, le salut unique est assuré pour moi, puisque l'éloge de tes vertus est la seule ressource infaillible des créatures.
+
+37\. --- En louant une fraction insignifiante de la foule de tes mérites j'obtiens un mérite spirituel, qui a la saveur du suc exquis du fruit du souhait du jour pur, pour en jouir jusqu'à la délivrance. Puisse le monde entier par ce même mérite s'en aller tout de suite vers la terre des fils de Sugata, terre qui porte la bienhou reuse empreinte du Svastika de la plante des pieds du noble seigneur du monde, terre qui a nom Sukhāvatī !
+
+---
+
+# 10\. Āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra.
+
+**Oṃ namaḥ śrīmadāryatārāyai**
+
+śrīmatpotalake ramye nānādhātuvirājite ।  
+nānādrumalatākīrṇe nānāpakṣinikūjite ।1।
+
+nānānirjharajhaṃkāre nānāmṛgasamākule ।  
+nānākusumajātībhiḥ samantād adhivasite ।2।
+
+nānāhṛdyaphalopete ṣaṭpadodgītanisvane ।  
+kinnarair madhurair gītair mattavāraṇasaṃkule ।3।
+
+siddhavidyādhāragaṇaiḥ gandharvaiś ca ninādite ।  
+munibhir vītarāgaiś ca satataṃ saṃniṣevite ।4।
+
+bodhisatvagaṇaiś cānyaiḥ daśabhūmīśvarair api ।  
+āryatārādibhir devīvidyārājñīsahasrakaiḥ ।5।
+
+krodharājagaṇaiś cānyaih hayagrīvādibhir vṛte ।  
+sarvasatvahitodyukto bhagavān avalokitaḥ ।6।
+
+vijahāra tataḥ śrīmān padmagarbhāsane* sthitaḥ ।  
+mahatā tapasā yukto maitryā ca* kṛpayānvitaḥ ।7।
+
+*) B. tale.
+
+*) B. va.
+
+dharmaṃ dideśa tasyāṃ sa mahatyāṃ devaparṣadi ।  
+tatropaviṣṭam āgamya vajrapāṇir mahābalaḥ* ।8।
+
+*) C. varaḥ.
+
+paramakṛpayā yuktaḥ papracchety* avalokitam ।  
+taskaroragasiṃhāgnigajavyāghrāmbusaṃkaṭe ।9।
+
+*) D'ap. C. --- A. papraccha so.
+
+sīdanty amī mune satvā magnāḥ saṃsārasāgare ।  
+baddhāḥ saṃsārakaiḥ pāśai rāgadveṣatamopahaiḥ ।10।
+
+mucyante yena saṃsārāt tan me brūhi mahāmune ।  
+evam ukte jagannāthaḥ sa śrīmān* avalokitaḥ ।10 _bis_।
+
+*) B. supprime le second hémistiche du vers 10 et le premier hémistiche du vers 10 _bis_, où il remplace śrīmān par varmān.
+
+uvāca madhurāṃ vāṇīṃ vajrapāṇiṃ prabodhinam ।  
+śṛṇu guhyakarājendra amitābhasya tāyinaḥ ।11।
+
+praṇidhānavaśotpannā mamājñā lokamātarāḥ  
+mahākaruṇayopetā jagaduddharaṇoddhṛtāḥ ।12।
+
+uditādityasaṃkāśāḥ pūrṇenduvadanaprabhāḥ ।  
+bhāsayanti drumāṃs tārāḥ sadevāsuramānuṣān ।13।
+
+kampayanti trayo lokān trāsyantī yakṣarākṣasān ।  
+nīlotpalakarā devī mā bhair mā bhair iti bruvan ।14।
+
+jagatsaṃrakṣaṇārthāya aham utpāditā jinaiḥ ।  
+kāntāre śastrasaṃparke nānābhayasamākule ।15।
+
+smaraṇād eva nāmāni satvān rakṣāmy ahaṃ sadā ।  
+tārayiṣyāmy ahaṃ nātha* nānābhayamahārṇavāt ।16।
+
+*) B. satvā.
+
+tena tāreti maṃ loke gāyanti munipuṃgavāḥ ।  
+kṛtāñjalipuṭā bhūtvā tataḥ sādarasādhvasāḥ ।17।
+
+jvalatīryantarīkṣestha idaṃ vacanam abravīt* ।  
+nāmāṣṭaśatakaṃ brūhi yat purā kīrtitaṃ jinaiḥ ।18।
+
+*) B. abruvan.
+
+dāśabhūmīśvarair nāthair bodhisatvair maharddhikaiḥ ।  
+sarvapāpaharaṃ puṇyaṃ māṅgalyaṃ kīrtivardhanam ।19।
+
+dhanadhānyakaraṃ caiva ārogyapuṣṭivardhanam* ।  
+maitrīm ālambya satvānāṃ tat kīrtaya mahāmune ।20।
+
+*) B. : dhanadhānyakaraṃ caivārogyapuṣṭivardhanam  
+ayurārogyajanaṃ sarvasatvasukhavaham, etc. ...
+
+evam ukte tha bhagavān prahasann avalokitaḥ ।  
+vyavalokya diśaḥ sarvā maitryā sphuraṇayā dṛśā ।21।
+
+dakṣiṇakaram uddhṛtya puṇyalakṣaṇamaṇḍitam ।  
+tam uvāca mahāprājñaḥ sādhu sādhu mahātapaḥ ।22।
+
+nāmāni śṛṇu mahābhāga sarvasatvaikavatsalaḥ ।  
+yāni saṃkīrtya manujāḥ samyak te syur dhaneśvarāḥ ।23।
+
+sarvavyādhivinirmuktāḥ sarvaiśvaryaguṇānvitāḥ ।  
+akālamṛtyunirdagdhāś cyutā yānti sukhāvatīm ।24।
+
+tāny ahaṃ saṃpravakṣyāmi devasaṃghāḥ śṛṇudhva me  
+anumodeta [sad] dharme bhaviṣyadhvaṃ sunirvṛtāḥ* ।25।
+
+*) C. anumode bhavetadvā bhaviṣyadhvaṃ sunirvṛtāh ॥25॥
+
+oṃ locane sulocane tāre tārotsave sarvasatvānukampini  
+sarvasatvottāriṇi sahasrabhuje sahasranetre ।26।
+
+oṃ namo bhagavate valokya āvalokyā* ।  
+sarvasatvānāṃ cāhaṃ phuṭ svāhā* ॥27।
+
+*) C. ajoute : mām.
+
+*) C. ajoute : Ōm tāre tuttāre ture svāhā.
+
+oṃ śuddhe viśuddhe śodhanaviśodhani* ।  
+sugatātmaje maitrīhṛdaye nirmale śyāme śyāmarūpiṇi ।28।
+
+*) Śodhana viśodhani manque dans B et dans C.
+
+mahāprājñe pravare pravarabhūṣite parājite ।  
+mahāraudri viśvarūpi mahāyaśa* ।29।
+
+*) B. mahabalā.
+
+kalpāgnimahātejā lokadhātrī* mahāyaśā ।  
+sarasvatī viśālākṣī prajñāśrībuddhivardhanī ।30।
+
+*) D'ap. B. --- A. : lokatrī.
+
 ...
