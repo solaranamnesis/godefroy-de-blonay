@@ -32,7 +32,7 @@
 
 # [8\. Āryatārāsragdharāstotra.](#8-āryatārāsragdharāstotra-1)
 
-## [8\. addendum editoris : Devanāgarī (देवनागरी).]()
+## [8\. addendum editoris : Devanāgarī (देवनागरी).](#8-addendum-editoris--devanāgarī-देवनागरी-1)
 
 # [9\. Traduction.](#9-traduction-1)
 
