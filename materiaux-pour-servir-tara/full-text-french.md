@@ -1344,6 +1344,12 @@ sarasvatī viśālākṣī prajñāśrībuddhivardhanī ।30।
 
 ...
 
+# 10\. _addendum editoris_ : Devanāgarī (देवनागरी).*
+
+*) [IAST.](https://arshavidya.org.uk/vyasa.html)
+
+...
+
 # 11\. Traduction.
 
 ...
