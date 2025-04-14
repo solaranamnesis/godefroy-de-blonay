@@ -36,7 +36,7 @@
 
 # [9\. Traduction.](#9-traduction-1)
 
-# [10\. Āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra.]()
+# [10\. Āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra.](#10-āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra-1)
 
 ## [10\. addendum editoris : Devanāgarī (देवनागरी).](#10-addendum-editoris--devanāgarī-देवनागरी-1)
 
@@ -1341,5 +1341,9 @@ kalpāgnimahātejā lokadhātrī* mahāyaśā ।
 sarasvatī viśālākṣī prajñāśrībuddhivardhanī ।30।
 
 *) D'ap. B. --- A. : lokatrī.
+
+...
+
+# 11\. Traduction.
 
 ...
