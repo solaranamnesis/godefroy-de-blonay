@@ -996,6 +996,24 @@ prodyadvidyudvilāsojjvalajaladajavair āpriyante kṣaṇena ॥
 
 *) _Tathyakathye_ mot nouveau : le commentaire explique : हे तथ्यकथ्ये हे सत्यवादिनि.
 
+९\. --- मायामात्सर्यमानप्रभृतिभिर् अधमैस् तुल्यकालं  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[क्रमाच् च  
+स्वैर् दोषैर् वाक्यमानो मठकरभ इवानेकसाधारणांसः ।  
+युष्मत्पादाब्जपूजां क्षणम् अपि न लभे यत् तदर्थं विशेषाद्  
+एषा कार्पण्यदीनाक्षरपदरचना स्यान् ममावन्ध्यकामा ॥
+
+१०\. --- कल्पान्तभ्रान्तवातभ्रमितजलवलल्लोलकल्लोलहेला-  
+संक्षोभोत्क्षिप्तवेलातटविकटचटस्फोटमोटाट्टहासात् ।  
+मज्जद्भिर् भिन्ननौकैः सकरुणरुदिताक्रन्दनिष्पन्दमन्दैः  
+स्वच्छन्दं देवि सद्यस् त्वदभिभूतिपरैस् तीरम् उत्तीर्यते
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[ब्धेः ॥
+
+११\. --- धूमभ्रान्ताभ्रगर्भोद्भवगगणगृहोत्सङ्गरिङ्गत्-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[स्फुलिङ्ग-  
+स्फूर्जज् ज्वालाकरालज्वलनजवविशद्वेश्मविश्रान्तशय्याः ।  
+त्वय्य् आबद्धप्रणमाञ्जलिपुटमुकुटा गद्गदोद्गीतयाच्ञाः  
+प्रोद्यद्विद्युद्विलासोज्ज्वलजलदजवैर् आप्रियन्ते क्षणेन ॥
+
 ...
 
 # 9\. Traduction.
