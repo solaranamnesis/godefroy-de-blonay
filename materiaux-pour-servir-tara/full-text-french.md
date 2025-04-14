@@ -1005,7 +1005,7 @@ prodyadvidyudvilāsojjvalajaladajavair āpriyante kṣaṇena ॥
 १०\. --- कल्पान्तभ्रान्तवातभ्रमितजलवलल्लोलकल्लोलहेला-  
 संक्षोभोत्क्षिप्तवेलातटविकटचटस्फोटमोटाट्टहासात् ।  
 मज्जद्भिर् भिन्ननौकैः सकरुणरुदिताक्रन्दनिष्पन्दमन्दैः  
-स्वच्छन्दं देवि सद्यस् त्वदभिभूतिपरैस् तीरम् उत्तीर्यते
+स्वच्छन्दं देवि सद्यस् त्वदभिभूतिपरैस् तीरम् उत्तीर्यते  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[ब्धेः ॥
 
 ११\. --- धूमभ्रान्ताभ्रगर्भोद्भवगगणगृहोत्सङ्गरिङ्गत्-  
