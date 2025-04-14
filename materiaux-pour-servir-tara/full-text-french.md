@@ -965,6 +965,28 @@ vidyuddyotāyamānapraharaṇakiraṇe niṣpatadbāṇavarṣe ।
 ruddhaḥ saṃgrāmakāle prabalabhujabalair vidviṣadbhir dviṣadtvaddattotsāhapuṣṭiḥ  
 prasabham arimahīm ekavīraḥ pinaṣṭi ॥ [bhis
 
+19\. --- Pāpācārānubandhoddhatagadavigalatpūtipūyāsravisratvaṅmāṃsāsaktanāḍīmukhakuharagalajjantujagdhakṣatāṅgāḥ ।  
+yuṣmatpādopasevāgadavaraguṭikābhyāsabhaktiprasaktā  
+jāyante jātarūpapratinidhivapuṣaḥ puṇḍarīkāyatākṣāḥ ॥
+
+20\. --- Viśrāntaṃ śrotrapātre gurubhir upahṛtāṃ yāsya nām-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[nāyaṃ bhaikṣyaṃ*  
+vidvadgoṣṭhīṣu yaś ca śrutadhanavirahān mūkatām abhyupaiti ।  
+sarvālaṃkārabhūṣāvibhāvasamuditaṃ prāpya vāgīśvaratvaṃ  
+so pi tvadbhaktiśaktyā harati nṛpasabhe vādisiṃhāsanāni ॥
+
+*) Ms. : yasyāmnāya.
+
+21\. --- Bhūśayyādhūlidhūmrasphuṭitakaṭakaṭīkarpaṭotghāṭitāṅgo  
+yūkāyuṃṣi prapiṃśan parapurapurataḥ karpare tarpaṇārthī ।  
+tvām ārādhyādhyavasyanvarayuvativahaccāmarasmeracārvīm  
+urvīṃ dhatte madāndhadvipadaśanaghanām uddhṛtaikātapatrāṃ ॥
+
+22\. --- Sevākarmāntaśilpāpraṇayavinimayopāyaparyāyakhinnaḥ  
+prāgjanmopāttapuṇyopacitaśubhaphalaṃ vittam aprāpnuvantaḥ ।  
+daivātikrāmanīṃ tvām kṛpaṇajanajanany artham abhyarthya bhūyo  
+bhūmer nirvāntacāmīkaranikaranidhīn nirddhanā prāpnuvanti ॥
+
 ...
 
 # 8\. _addendum editoris_ : Devanāgarī (देवनागरी).*
