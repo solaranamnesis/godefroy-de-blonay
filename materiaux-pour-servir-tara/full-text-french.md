@@ -932,6 +932,39 @@ sphūrjaj jvālākarālajvalanajavaviśadveśmaviśrāntaśayyāḥ ।
 tvayy ābaddhapraṇamāñjalipuṭamukuṭā gadgadodgītayācñāḥ  
 prodyadvidyudvilāsojjvalajaladajavair āpriyante kṣaṇena ॥
 
+12\. --- Dānāṃbhaḥpūryamāṇobhayakaṭakaṭakālambirolambamālāhuṃkārāhūyamānapratigajajanitadveṣavahner dvipasya ।  
+dantāntottuṅgadolātalatulitatanus tvām anusmṛtya mṛtyuṃ  
+pratyācaṣṭe prahṛṣṭaḥ pṛthuśikharaśiraḥkoṭikoṭṭopaviṣṭaḥ ॥
+
+13\. --- Prauḍhaprāsaprahāraprahatanaraśiraḥśūlavallyutsavāyāṃ  
+śūnyāṭavyāṃ karāgragrahavilasadasisphoṭakasphītadarpān ।  
+dasyūn dāsye niyuṅkte sabhṛkuṭikuṭilabhrūkaṭākṣekṣitākṣāṃś  
+cintālekhany akhinnasphuṭalikhitapadaṃ nāmadhāmaśriyāṃ te ॥
+
+14\. --- Vajrakrūraprahāraprakharaṇakhamukhotkhātamattebha-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[kumbha-  
+ścyotatsāndrāsradhautasphuṭavikaṭasaṭāsaṃkaṭaskandhasaṃdhiḥ ।  
+krudhyann āpitsur ārād upari mṛgaripus tīkṣṇadāṃṣṭrotkaṭāsyas  
+trasyann āvṛtya yāti tvaducitaracitastotradugdhārthavācaḥ ॥
+
+15\. --- Dhūmāvartāndhakārākṛtivikṛtiphaṇisphāraphūtkārapūravyāpāravyāttavaktrasphuradururasanārajjukīnāśapāśaiḥ ।  
+pāpāt saṃbhūya bhūyas tava guṇagaṇanā tatparas tvatparātmā  
+dhatte mattālimālāvalayakuvalayasragvibhūṣāṃ vibhūtiṃ ॥
+
+16\.--- Bhartṛbhrūbhedabhītodbhaṭakaṭakabhaṭākṛṣṭaduḥśliṣṭakeśaś  
+cañcadvācāṭaceṭotkaṭaraṭitakaṭugranthipāśopagūḍhaḥ ।  
+kṣuttṛṭkṣāmoṣṭhakaṇṭhas tyajati sa sapadi vyāpadaṃ tāṃ durantāṃ  
+yo yāyād āryātārācaraṇaśaraṇatāṃ snigdhavandhūjjhito pi ॥
+
+17\. --- Māyānirmāṇakarmakramakṛtavikṛtānekanepathyamithyārūpārambhānurūpapraharaṇakiraṇāḍaṃbaroḍḍāmarāṇi ।  
+tvattantroddhāryamantrasmṛtihṛtaduritasyā vahanty apradhṛṣyaṃ  
+pretaprotāntratantrīnicayaviracitasrāñji rakṣāṃsi rakṣāṃ ॥
+
+18\. --- Garjajjīmūtamūrtitrimadamadanadībaddhadhārāndhakāre  
+vidyuddyotāyamānapraharaṇakiraṇe niṣpatadbāṇavarṣe ।  
+ruddhaḥ saṃgrāmakāle prabalabhujabalair vidviṣadbhir dviṣadtvaddattotsāhapuṣṭiḥ  
+prasabham arimahīm ekavīraḥ pinaṣṭi ॥ [bhis
+
 ...
 
 # 8\. _addendum editoris_ : Devanāgarī (देवनागरी).*
