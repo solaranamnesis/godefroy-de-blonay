@@ -858,7 +858,7 @@ Voilà le commencement de l'histoire ; comme elle est bien connue, nous ne la ra
 1\. --- Bālārkālokatāmrapravarasuraśiraścārucūḍāmaṇiśrīsaṃpatsaṃparkarāganāticiraracitālaktakavyaktabhaktī ।  
 bhaktyā pādau tavārye karapuṭamukuṭātopabhugnottamāṅgas tāriṇy āpaccharaṇyair navanutikusumasragbhir abhyarcayāmi* ॥
 
-2\. Durlaṅghe duḥkhavahnau vinipatitatanur durbhagaḥ kāṃ-  
+2\. --- Durlaṅghe duḥkhavahnau vinipatitatanur durbhagaḥ kāṃ-  
                                                 [diśīkaḥ  
 kiṃ kiṃ mūḍhaḥ karomīty asakṛd api kṛtārambhavaiyarthya-  
                                                 [khinnaḥ ।  
