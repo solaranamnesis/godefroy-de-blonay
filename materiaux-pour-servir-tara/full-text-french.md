@@ -36,6 +36,12 @@
 
 # [9\. Traduction.](#9-traduction-1)
 
+# [10\. Āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra.]()
+
+## [10\. addendum editoris : Devanāgarī (देवनागरी).](#10-addendum-editoris--devanāgarī-देवनागरी-1)
+
+# [11\. Traduction.](#11-traduction-1)
+
 ...
 
 ---
