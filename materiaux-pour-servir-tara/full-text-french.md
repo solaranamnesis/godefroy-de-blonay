@@ -817,7 +817,7 @@ Pour établir le texte de l'_Ekaviṃśatistotra_, j'ai disposé des deux textes
 
 # 6\. Introduction du Commentaire de Jinarakṣita.
 
-**Oṃ namas Tārāyai**
+Oṃ namas Tārāyai
 
 Natvāryatārāṃ jagadarthasārāṃ  
 dharmākarādhyeṣaṇayā samāsāt ।  
@@ -834,7 +834,7 @@ Tatra vṛttau upodghātam ādau prastūyate । iha kāśmīraviṣaye bodhisat
 
 # 6\. _addendum editoris_ : Devanāgarī (देवनागरी).*
 
-**ओं नमस् तारायै**
+ओं नमस् तारायै
 
 नत्वार्यतारां जगदर्थसारां  
 धर्माकराध्येषणया समासात् ।  
@@ -865,7 +865,7 @@ Voilà le commencement de l'histoire ; comme elle est bien connue, nous ne la ra
 
 # 8\. Āryatārāsragdharāstotra.
 
-**Om namo bhagavatyai Āryatārāyai.**
+Om namo bhagavatyai Āryatārāyai.
 
 1\. --- Bālārkālokatāmrapravarasuraśiraścārucūḍāmaṇiśrīsaṃpatsaṃparkarāganāticiraracitālaktakavyaktabhaktī ।  
 bhaktyā pādau tavārye karapuṭamukuṭātopabhugnottamāṅgas tāriṇy āpaccharaṇyair navanutikusumasragbhir abhyarcayāmi* ॥
@@ -1220,7 +1220,7 @@ Om, Hommage à la vénérable Ārya Tārā.
 
 # 10\. Āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra.
 
-**Oṃ namaḥ śrīmadāryatārāyai**
+Oṃ namaḥ śrīmadāryatārāyai
 
 śrīmatpotalake ramye nānādhātuvirājite ।  
 nānādrumalatākīrṇe nānāpakṣinikūjite ।1।
