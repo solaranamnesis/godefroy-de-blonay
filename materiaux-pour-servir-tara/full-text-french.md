@@ -1395,9 +1395,57 @@ saubhāgyaṃ bhāgyakaraṇaṃ sarvakīlbiṣanāśanam ।
 sarvavyādhipraśamanaṃ sarvasatvasukhāvaham ।44।
 
 trikāraṃ yaḥ paṭhed dhīmān śuciḥ snānasamāhitaḥ ।  
-acireṇaiva kālena rājyaśriyam avāpnuyāt ।45।
+*acireṇaiva kālena rājyaśriyam avāpnuyāt ।45।
 
-...
+*) B. porte : śodhane sādhakasyevarādhyaśriyaṃ. A. : śodhakasyeva.
+
+duḥkhitaḥ syāt sukhī nityadaridro dhanavān bhavet ।  
+[jaḍo] bhavet mahāprājño medhāvī ca na saṃśayaḥ ।46।
+
+bandhanān mucyate baddho vyavahāre jayo bhavet ।  
+śatravo mitratāṃ yānti śṛṅgiṇaś cātha daṃṣṭriṇaḥ ।47।
+
+saṃgrāme saṃkaṭe durge nānābhayasamākule ।  
+smaraṇād eva nāmāni [sarvapāpāny] apohati ।48।
+
+nākālaṃṛtyur bhavati prāpnoti vipulāṃ śriyam ।  
+mānuṣyaṃ saphalaṃ janma yasya* kasya mahātmanaḥ ।49।
+
+*) D'ap. B. et C. au lieu de : tasya.
+
+yaś cedaṃ prātar utthāya mānavaḥ kīrtayiṣyati ।  
+sa dīrghakālam āyuṣmān śriyaṃ ca labhate naraḥ ।50।
+
+devā nāgās tathā yakṣā gandharvāḥ kaṭapūtanāḥ ।  
+piśācarākṣasā bhūtā mātaro raudratejasaḥ ।51।
+
+*kṣayāpasmārakārakaś caiva kṣatakākhorḍakādayaḥ* ।  
+ḍākinyās tārakā pretāḥ skandā mārā mahāgrahāḥ ।52।
+
+*) B. --- bhayāni.
+
+*) Dans C. les hémistiches du v. 52 sont intervertis, et le secoud finit ainsi : kṛtyākārkoṭakādayaḥ ॥48॥.
+
+chāyām api na laṅghante* kiṃ punas tasya vigrahaḥ ।  
+duṣṭasatvā na vādhante vyādhayo nākramanti ca ।53।
+
+*) Corr. d'ap. B. au lieu de : nalaghake.
+
+devāsura[m]api saṃgrāmam anubhavanti maharddhikāḥ ।  
+sarvaiśvaryaguṇair yuktaḥ putrapautraiś ca vardhate ।54।
+
+jātismaro bhaved dhīmān kulīnaḥ priyadarśanaḥ ।55।
+
+prītimāṃś ca mahāvāgmī sarvaśāstraviśāradaḥ ।56।
+
+kalyāṇamitrasaṃsevī bodhicittavibhūṣitaḥ ।  
+sadāvirahito buddhair yatra yatropapadyate ।57।
+
+Ity āryatārābhaṭṭārikāyā nāmāṣṭottaraśatakaṃ buddhabhāṣitaṃ samāptam ।
+
+।śubham।
+
+---
 
 # 10\. _addendum editoris_ : Devanāgarī (देवनागरी).*
 
@@ -1531,6 +1579,174 @@ acireṇaiva kālena rājyaśriyam avāpnuyāt ।45।
 
 ...
 
-# 11\. Traduction.
+# 11\. Traduction de la Liste des cent huit Noms d'Ārya Tārā.
 
-...
+Hommage à la glorieuse Ārya Tārā.
+
+Sur le noble Potalaka, qui est agréable, qui resplendit de l'éclat de divers minéraux, que recouvrent des lianes et des arbres variés, qui résonne des cris d'oiseaux de toutes sortes, --- 1. rendu bruyant par de nombreuses cascades, peuplé de gibier de toutes les espèces, que parfument de tous côtés les fleurs de jasmins et de lotus variés, --- 2. fourni de fruits délicieux et divers, tout plein du susurrement des abeilles et rempli des doux chants des kinnaras et des éléphants ivres, --- 3. fréquenté par des troupes de vidyādhāras, de saints et de gandharvas bruyants, et par les ascètes exempts de passions ; fréquenté aussi, éternellement, --- 4. par les foules des bodhisatvas et par les autres seigneurs des dix terres, et par des milliers de déesses et de reines de la science, à commencer par Ārya Tārā, --- 5. couvert par les troupes du roi de la Colère et d'autres, à commencer par Hayagrīva ; (sur ce Potalaka) le bienheureux Avalokita qui est attentif au bien de toutes les créatures, --- 6. se tenant sur le siège fait du cœur d'un lotus, le bienheureux était là, doué d'un grand ascétisme et plein de compassion et d'amitié. --- 7. Il enseignait la Loi dans cette grande assemblée des dieux. Étant venu vers lui, qui était assis là, Vajrapāṇi à la grande force --- 8. inspiré par la plus vive compassion, interrogea ainsi Avalokita : « Voleurs, serpents, lions, feu, éléphants, sont comme des flots qui rendent plus périlleux encore l'océan des transmigrations ;--- 9. ô Muni ! ces êtres y tombent noyés, liés par les lacets du saṃsāra qui entraînent les ténèbres, la haine et les passions ;--- 10. ce par quoi on est délivré du saṃsāra, dis-le-moi, ô grand Muni ! » 10. _bis_ Ainsi interpellé, Avalokita, le maître du monde, répondit --- une douce parole à Vajrapāṇi qui veille : « Écoute, souverain des Guhyakas, le sauveur Amitābha. --- 11. Les Mères du monde, nées par la puissance de mon recueillement, douées d'une grande pitié et attentives à sauver le monde, --- 12. semblables au soleil levant, ayant un éclat pareil à celui de la pleine lune, les Tārās illuminent les arbres avec les dieux, les asuras et les hommes, --- 13. elles font trembler les trois mondes, épouvantant les yakṣas et les rākṣasas. La déesse qui a en main un lotus bleu : N'aie pas peur, n'aie pas peur, ainsi dit-elle, --- 14. c'est pour protéger le monde que j'ai été créée par les jinas. Dans les fourrés quand les épées se croisent, quand le danger est pressant, --- 15. par le seul souvenir de mes noms, je protège toujours les créatures, je les ferai traverser, moi, ô protecteur, hors des grands flots et des craintes diverses, --- 16. C'est pourquoi sous le nom de Tārā, ils me célèbrent les taureaux des Munis, ayant fait l'añjali en forme de coupe, là, avec respect et émotion. » ... 17. Il (Vajrapāṇi) dit cette parole : « Dis les Cent huit noms qui ont été proclamés autrefois par les jinas, --- 18. par les seigneurs des dix terres, par les bodhisatvas qui sont doués de force surnaturelle, noms qui enlèvent tout péché, purs, qui portent bonheur, qui développent la splendeur, --- 19. qui donnent la richesse et les moissons, et qui accroissent aussi la prospérité et la santé ; au nom de ton amitié pour les créatures, fais cela, ô grand Muni. »
+
+20\. A ces paroles, le bienheureux Avalokita, souriant, jetant ses regards sur toutes les régions de l'horizon, d'un œil étincelant de bienveillance, --- 21. soulevant la main droite ornée d'un signe propice, dit à celui-ci, le grand sage :
+
+22\. « Bien, bien, ô toi qui as un grand tapas, entends les noms, ô toi bienheureux, unique chéri, en les répétant les hommes sont tous des princes des richesses, --- 23. ils sont délivrés de toutes les maladies, doués de toutes les qualités et de tous les pouvoirs, ils écartent la mort qui est hors de temps, et une fois tombés, ils arrivent à Sukhāvatī. --- 24. Ces noms, je vais les énumérer, divinités assemblées, écoutez-moi, réjouissez-vous dans la loi --- et soyez bien apaisées dans le dharma. 25. Ôṃ ! hommage à celle qui a des yeux, qui a de beaux yeux, Tārā, fête à Tārā qui est miséricordieuse envers toutes les créatures, qui sauve toutes les créatures, qui a mille bras, qui a mille yeux, --- 26. ôṃ, hommage à Bhagavatī, ... de toutes les créatures --- 27. phuṭ ! svāhā ! Ôṃ, hommage à la pure, à la très pure, qui purifie, qui nettoie, fille du Sugata, qui a le cœur plein d'amitié, qui est sans tache, de couleur sombre, qui a le visage sombre, --- 28. très sage, excellente, excellemment parée, invincible, inspirant un grand effroi, revêtant toutes les formes, à la grande splendeur, --- 29. au grand éclat du feu du kalpa, protectrice du monde à l'immense gloire, Sarasvatī, 30. aux grands yeux, faisant croître la sagesse, la beauté et la raison ; qui est ôm, qui revêt à son gré la forme qu'elle souhaite, qui est bonne pour toutes les créatures, dans le combat sauveuse et victorieuse, --- 31. déesse de la perfection de la science, noble Tārā qui réjouit le cœur, amie du tambour, reine de la complète science, qui dit des choses agréables,--- 32. qui a un visage de lune, au teint grandement clair, invincible, au vêtement jaune, grande Māyā, très blanche, très forte, très puissante, --- 33. très terrible, pleine de grande fureur, meurtrière des créatures mauvaises, apaisée, à la beauté calme et victorieuse, qui a l'éclat des flammes, --- 34. enguirlandée d'éclairs, porte-drapeau, porte-glaive, portedisque, qui a un arc et des armes, destructrice, soutien, Kālī, nuit du temps, noctambule, --- 35. protectrice, qui trouble, qui est apaisée, bien-aimée, brillante, brāhmaṇī et mère des Vedas, cachée et habitante des cavernes, --- 36. propice, heureuse, douce, qui a engendré le Veda, prompte comme l'esprit, ornée de crânes, qui a une grande destinée, crépuscule, véridique, victorieuse, --- 37. conductrice des caravanes, qui regarde avec compassion, qui montre la route aux égarés ; elle donne des faveurs, elle ordonne, maîtresse parée de la beauté féminine, au grand courage, --- 38. bigarrée, pratiquant le yoga, sainte, Cāṇḍālī, immortelle, inébranlable, opulente, pure, à la glorieuse destinée, ayant une belle existence, agréable à voir, --- 39. faisant trembler la mort, terrible, farouche, elle a un puissant et effrayant tapas, elle n'est attentive qu'au bien du monde, protectrice, amie de la dévotion, --- 40. princesse de l'éloquence, favorable, subtile, éternelle, réalisant toutes les fins, elle réalise l'exécution de tous les projets, heureuse, bienfaitrice, nourricière, elle conquiert les richesses, --- 41. intrépide, Gautamī, sainte fille du vénérable maître du monde. Tārā est infinie par les qualités de ses noms, elle comble entièrement toute espérance. --- 42. Ces cent huit noms ont été promulgués pour votre utilité, noms mystérieux, miraculeux, secrets, difficiles à acquérir même pour les dieux, --- 43. ils procurent la bonne fortune et un heureux destin, ils détruisent tous les péchés, ils sont l'apaisement de toutes les maladies et apportent la joie à tous les êtres. --- 44. Celui qui les réciterait trois fois intelligent, pur, après avoir pris un bain, obtiendra en peu de temps les honneurs royaux, --- 45. le malheureux deviendra heureux perpétuellement, le pauvre sera dans l'opulence, l'idiot deviendra très sage et très intelligent, il n'y a aucun doute à cet égard, --- 46. celui qui est lié sera délivré de ses liens, dans les procès il triomphera, les ennemis deviendront des amis, et les bêtes à cornes ou à défenses ;--- 47. dans la bataille, dans les lieux impraticables, dans les endroits difficiles, remplis de causes variées de frayeur, par le fait du souvenir de ces noms, les péchés sont entièrement enlevés. --- 48. Il n'a pas de mort intempestive, il obtient une grande prospérité, sa naissance comme homme sera fructueuse pour qui que ce soit qui sera magnanime, --- 49. qui, s'étant levé le matin, célébrera ceux-ci ;--- un tel homme obtiendra une longue vie et le bonheur. --- Les dieux, les Nāgas et aussi les Yakṣas, les Gandharvas, les démons destructeurs et les Piśācas, les Rākṣasas, les Bhūtas, et les Mères à l'éclat terrible, --- 51. ceux qui apportent la mort et l'épilepsie, les Kṣatas ( ? ) Kākhorḍaka, etc., 52. les Ḍākinis, les Tārakas, les Pretas, les Skandas, les Māras, les grands monstres, ne franchissent même pas son ombre, à bien plus forte raison ils ne le saisiront pas ; les créatures impures ne le frappent pas, les maladies même ne l'approchent pas. --- 53. Les dieux et les Asuras l'assistent au combat ( ? ), eux qui ont une grande puissance surnaturelle, il est doué des qualités de la domination universelle, il s'accroît par ses fils et ses petits-fils. --- 54. Il aura le souvenir de ses naissances antérieures, intelligent, noble et agréable à voir, --- 55. doué de charmes, très éloquent, versé dans tous les śāstras ; orné de la pensée de la bodhi, fréquentant de bons amis spirituels, et toujours non abandonné par les Buddhas, où qu'il se trouve. »
+
+Ainsi est terminée la liste des Cent huit noms de Ārya Tārā, la princesse, énoncés par Buddha.
+
+---
+
+# 12\. Ekaviṃśatistotra.
+
+1\. --- Namas tāre ture vīre kṣaṇadyutinibhekṣaṇe ।  
+trailokyanāthavaktrābjavikasatkesarodbhave ॥
+
+2\. --- namaḥ śāntasaraccandrasaṃpūrṇapaṭalānane ।  
+tāre sahasravikalpaprahasatkiraṇojjvale ॥
+
+3\. --- namaḥ kanakanīlābjapāṇipadmavibhūṣite ।  
+dānavīryatapaḥkṣāntititikṣādhyānagocare ॥
+
+4\. --- namas tathāgatoṣṇīṣavijayānantacāriṇi ।  
+aśeṣapāramitāprāptajinaputraniṣevite ॥
+
+5\. --- namas tuttārahūṃkārapūritāśādigantare ।  
+saptalokakramākrāntā aśeṣākarṣaṇakṣaṇe ॥
+
+6\. --- namaḥ śakranarabrahmamarudviśveśvarārcite ।  
+bhūtavetālagandharvagaṇayakṣapuraskṛte ॥
+
+7\. --- namas tratritriphaṭkāre paramantrapramardani ।  
+pratyālīḍhapādanyāse śikhijvālākulojjvale ॥
+
+8\. --- namas ture mahāghore māravīravināśani ।  
+bhṛkuṭīkṛtavaktrābjasarvaduṣṭanisūdani ॥
+
+9\. --- namas triratnamudrāṅke hṛdyāṅgulivibhūṣite ।  
+bhūṣitāśeṣadikcakranikare sukulākule ॥
+
+10\. --- namaḥ pramuditāṭopamukuṭākṣiptasāriṇi ।  
+hasatprahasattuttāre māralokabhayaṃkari ॥
+
+11\. --- namaḥ samantabhūpālāpātālākarṣanakṣaṇe ।  
+bhṛkuṭikṛtahūṃkāre sarvāpadavimocani ॥
+
+12\. --- namaḥ śikhaṇḍakhaṇḍendumukuṭābharaṇojjvale ।  
+amitābhatathābhāre bhāsvare kiraṇadhruve ॥
+
+13\. --- namaḥ karatalāghātacaraṇāhatabhūtale ।  
+bhṛkuṭikṛtahūṃkārasaptapātālanāśini ॥
+
+14\. --- namaḥ kalpāntahutabhugjvālāmālāntare sthite ।  
+ālīḍhamuditābaddharipucakravināśini ॥
+
+15\. --- namaḥ śive śubhe śānte śāntanirvāṇagocare ।  
+svāhā praṇamya saṃyukte mahāpātakanāśini ॥
+
+16\. --- namaḥ pramuditābaddharipugātraprabhedani ।  
+daśākṣarapādanyāse vidyāhuṃkāradīpite ॥
+
+17\. --- namas ture pādāghāte huṃkārakārajīvite ।  
+merumaṇḍalakailāśabhūvanatrayacāraṇi ॥
+
+18\. --- namaḥ surāsarākārahariṇīkakare sthite ।  
+haradviruktaphaṭkāra aśesaviṣanāśini ॥
+
+19\. --- namaḥ suragaṇayakṣāsurakinnarasevite ।  
+ābaddhamuditābhogakari duḥ(sva)pnanāśini ॥
+
+20\. --- namaś candrārkasaṃpūrṇa nayanadyuti(sva)bhāsvare ।  
+tāre dviruktottāre viṣamajvalanāśini ॥
+
+21\. --- namas tritalavinyāse śivaśaktisamanvite ।  
+grahavetālayakṣādyanāśani pravare ture ॥
+
+1\. --- Mantramūlam idaṃ stotraṃ namaskāraikaviṃśati ।  
+yaḥ paṭhet prāyaśo dhīmān devyā bhaktisamanvitaḥ ॥
+
+2\. --- so yaṃ vā prātar utthāya smaret sarvābhayapradaṃ ।  
+sarvapāpapraśamanaṃ sarvadurgatināśanam ॥
+
+3\. --- abhiṣiktobhaya tūrṇaṃ asmin mahattām āsādya ।  
+viṣaṃ tasya mahāghoraṃ smaraṇāt pralayaṃ yānti ॥
+
+4\. --- grahajvalaviṣārtānām anyeṣāṃ caiva satvānām ।  
+putrakāmo labhet putraṃ sarvakāmān avāpnoti ॥
+
+5\. --- saptabhir jinakoṭibhiḥ so nte bauddhapadaṃ vrajet ।  
+sthāvaraṃ vātha jaṅgamaṃ sāḍ idaṃ pīḍam eva ca ॥
+
+6\. --- paramārtivināśanaṃ dvitrisaptābhivartinām ।  
+dhanakāmo labhed dhanaṃ na vighnaiḥ pratihanyate* ॥
+
+Iti śrīsaṃyaksaṃbuddhavairocanabhāṣitaṃ bhagavatyāryatārādevyā  
+namaskāraikaviṃśatistotraṃ saṃpūrṇaṃ samāptaṃ ॥
+
+॥ śubham ॥
+
+*) Variantes du ms. B :  
+v. 7. --- kulajvale.  
+v. 8. --- sundani.  
+v. 10. --- māriṇi.  
+v. 12. --- abharaṇajvale.  
+Les vers des strophes de louange de la fin sont donnes dans un ordre different par le ms. B., mais le texte en est identique.
+
+---
+
+# 13\. Conclusion.
+
+Le buddhisme, à son origine, semble avoir été plutôt défavorable à l'élément féminin ; qu'on se rappelle les difficultés qui furent soulevées quand la mère adoptive du Buddha, Mahāprajāpati et les religieuses demandèrent à être admises officiellement dans la communauté et les reproches que dut essuyer Anānda, si nous en croyons les récits relatifs au premier concile, pour les avoir protégées.* Ces traits trahissent, soit chez les fondateurs de l'église une préoccupation déjà motivée par le danger d'une influence féminine, soit chez les rédacteurs du canon un esprit d'hostilité désireux de se légitimer par un appel au passé.
+
+*) Voir Minayeff, trad. de M. de Pompignan, p. 35.
+
+Tandis que le rationalisme monastique des églises singhalaises réussissait à écarter ce péril, l'église du Nord, plus fidèle au véritable esprit de l'Inde, ouvrait la porte aux divinités féminines et leur permettait d'acquérir peu à peu un rang prépondérant dans son panthéon.
+
+La fortune d'Ārya Tārā est la plus éclatante de toutes.
+
+La légende et l'étymologie sont d'accord pour donner à Tārā une double physionomie aisément réductible à l'unité.
+
+Le buddhisme rattache de préférence son nom à la forme causative de la racine _tar_, traverser ; Tārā est alors la déesse qui _fait traverser_ ; son nom éveille comme un écho dans l'imagination indienne la métaphore, usuelle au point d'être inaperçue, de l'Océan des existences. La série des transmigrations apparaît en effet à l'Hindou comme une mer infinie ; c'est à trouver le moyen d'en atteindre l'autre bord que la religion et la philosophie ont l'une et l'autre épuisé leurs ressources.
+
+Le brahmanisme, de son côté, connaît aussi une Tārā, soit que jaloux d'une déesse née en dehors de ses traditions il l'ait annexée au moyen d'une légende, soit que Tārā, l'épouse brillante de Bṛhaspati, mère de Buddha, eût déjà son histoire telle que nous la donnent les Purāṇas* ; il rattache son nom à la désignation générique de l'étoile, en sanscrit : _tārā, la claire_.
+
+*) Cf. Viṣṇupurāṇa, 4. 6, Bhāgavatapurāṇa, 9. 14, 4-8, et Harivansa, 25.  
+Voici le texte du Harivansa d'après la traduction de Langlois, t. 1, p. 113-114 : « Après s'être acquitté de la cérémonie qui complète le sacrifice, heureux et chéri de tous les Devarṣis, il (Soma) brilla parmi les rois dont il était le souverain, étendant sa lumière sur les dix régions du ciel. Mais à peine eut-il obtenu cette domination difficile à acquérir que les munis eux-mêmes avaient sanctionnée de leurs bénédictions, que sa raison se troubla, égarée par l'orgueil. Il enleva la glorieuse épouse de Vṛhaspati nommée Tārā, manquant ainsi au respect qu'il devait au fils d'Añgiras. En vain les dieux et les Rājarṣis vinrent le prier de réparer cet affront : il refusa de rendre Tārā. Le précepteur des dieux Vṛhaspati fut indigné de sa conduite et lui déclara la guerre. Uśanas se mit dans l'arrière-garde du fils d'Añgiras ; il avait été le disciple de Vṛhaspati plutôt que de Bhṛgu son père. Le dieu Rudra lui-même, par amitié pour son maître outragé, prit le commandement de cette arrière-garde et s'arma de son arc Ajagava ; il lança contre les dieux partisans de Soma un trait redoutable qui abattit tout leur orgueil. Alors se livra ce combat terrible auquel Tārā a donné son nom, combat sanglant également funeste aux Devas, aux Daityas et aux mondes. Ceux d'entre les dieux qui avaient échappé et les Tuṣitas se présentèrent devant Brahma, leur protecteur, maître suprême et éternel. Ce dieu arrêta Uśanas et Rudra, et rendit lui-même Tārā au fils d'Añgiras. Mais Vṛhaspati s'étant aperçu qu'elle était enceinte, lui dit : « Le sein de ma femme ne doit pas garder ce fruit. » Aussi-tôt il la débarrassa avec violence d'un enfant qui devait un jour être terrible pour ses ennemis et qui brilla comme un feu qui tombe sur une jonchée de roseaux. A peine était-il né qu'il offrait toute la beauté des dieux. En ce moment les Suras indécis dirent à Tārā : « Déclare la vérité, de qui est-il fils, de Soma ou de Vṛhaspati ? » A cette question des dieux, elle ne répondit rien de satisfaisant, son fils lui-même allait la punir par une imprécation, Brahma le retint et interrogea cette épouse embarrassée : « Tārā, lui dit-il, explique-toi sur la vérité, de qui est ce fils ? » Saluant Brahma avec respect elle répondit : « Il est fils de Soma. » Alors Soma embrassant ce fils, dit : « Voilà Budha ! (Mercure). »
+
+Ces deux aspects se sont facilement confondus : Tārā, gardera toujours l'empreinte de son origine ; nous avons vu qu'elle sauve constamment ses adeptes de l'eau ou par l'eau en les faisant atterrir en lieu sûr ; elle est aussi le guide fidèle, l'étoile du nautonier, _stella maris_ invoquée du navigateur.*
+
+*) Se représenter les buddhistes indiens hostiles à la navigation serait méconnaître un côté important de leur vie et le complément indispensable du caractère missionnaire de leur foi. La traversée à Laṅkā n'était pas la seule qui leur fût familière. Notre inscription javanaise en est une preuve, de même aussi la légende bien connue de Pūrṇa le vertueux (Burnouf, _Introd._, p. 235 et suiv.), qui permet de constater l'existence d'une corporation de marchands marins très puissamment organisée dans la ville de Sūrpāraka (au nord de Bombay). Il serait singulier qu'il n'en eût pas été de même dans bien d'autres villes maritimes commerçantes.
+
+Les titres d'honneur que reçoit Tārā montrent le rang qu'elle occupe dans la savante hiérarchie buddhique :
+
+Le plus fréquent de tous est : _āryā_, qui se joint à son nom jusqu'à en devenir un élément inséparable. Cette épithète désigne dans la langue technique de l'église buddhique le degré suprême de sainteté.*
+
+Tārā est souvent aussi qualifiée de _Bhaṭṭārikā, la princesse_. Ce mot est un document historique précis : Bhaṭṭārikā est le féminin du mot _Bhaṭṭāraka_, qui se rencontre à partir du sixième siècle dans les inscriptions pour désigner les mahārājas et les mahārajādhirajas (les rois vassaux ou les suzerains) et aussi les divinités de premier rang* ; il désigne les épouses de ces personnages.
+
+Une autre épithète qui est devenue comme un surnom de Tārā est _Sragdharā, la porteuse de guirlande_ ; c'est sans doute la popularité de ce nom qui a déterminé Sarvajñamitra à célébrer sa divinité préférée dans le mètre également appelé _Sragdharā_ ; le _Sragdharā stotra_ est en effet à la fois l'hymne à _Sragdharā_ et l'hymne en _Sragdharā_.
+
+L'extension rapide du culte de Tārā, soit en Chine, soit au Tibet, s'explique par l'histoire du monde buddhique à partir du sixième siècle : des pèlerins hardis parcouraient l'Asie tout entière et propageaient sur leur passage les doctrines, les croyances et les légendes recueillies au hasard de leur course. Fa-Hian, Hiouen-Tsang et I-Tsing symbolisent ce grand mouvement. Néanmoins il ne faudrait pas se représenter les éléments divers, ainsi transportés, comme se pénétrant aisément les uns les autres ; ils formaient une mosaïque et non point une unité compacte. Tandis que nos documents assignent à Tārā une place très éminente parmi les divinités buddhiques, c'est à peine si nous la voyons mentionnée dans le reste de la littérature étudiée jusqu'ici.
+
+La continuité du culte de Tārā nous est confirmée par quelques mentions de tīrthas de Tārā dans le _Svayaṃbhūpurāṇa_* et les titres de plusieurs tantras. (Voir page 6, note 1.)
+
+*) Voir Minayeff, trad. Pompignan, p. 87.
+
+*) Paśupati, Śiva et le Soleil. Ct. Fleet, _Corp._, p. 17.
+
+*) A ce sujet M. de La Vallée Poussin nous communique le passage suivant du _Svayaṃbhūpurāṇa_ manusc. dev. 78 du Cat. de la Bibl. Nat., Paris.  
+F° 147. Le roi Aśoka se rend successivement à tous les tīrthas et adresse des prières à la série des divinités auxquelles ils sont consacrés, notamment à Vāṇīvatī, Mātṛdevī :  
+Tato bhiṣṛtyāryatārātirtham āsadyābhiṣecya Tārām abhipūjya Tārām, bhavasāgaratāre vividhākāre tribhuvanasāre dūrīkṛtamāre saṃsārasāgarato māṃ uddharoddhareti so nyatra snānani pratyagamat.  
+Dans le ms. dev. 93, f. 109 a, est mentionné le _Sragdharā stotra_ :  
+Sahayām āsa bhāvena Āryatārā manoharī  
+Taddhradasya ca madhye tu Āryatārā sulakṣmaṇī ...  
+Tasmin hrade pi snānāc ca kāmaphalaṃ pralabhyate ...  
+Tathāpi _śragdharādi ca Tārāstotraṃ_ paṭhan mudā  
+Evaṃ kṛtvā mānujāiśca vāñchāphalaṃ pralabhyate ...
+
+La Tārā originelle est dans l'ordonnancement du panthéon septentrional, attribuée comme épouse au dhyānibuddha Amoghasiddha. Il a fallu créer aussi pour les autres dhyānibuddhas des compagnes qui ont reçu également le nom générique de Tārā avec des attributs particuliers.*
+
+*) Voir page 10. On appelle les Tārās :  
+Bhrūkuṭitārā, Sitatārā, Ratnatārā, Viśvatārā.  
+Il faut mentionner aussi avec le sixième Dhyānibuddha Vajrasattva son épouse Vajrasattvātmikā, qui appartiennent en propre aux tantras.
+
+Tārā n'est pas restée un type isolé, elle a de nombreuses sœurs, elle présente bien des traits communs avec les divinités féminines du tantrisme. Plus on se rapproche des pratiques tantriques, plus la différenciation entre chaque personnage divin devient difficile. Dans les stotras et dhāraṇīs les hymnes de Tārā se trouvent confondus pêle-mêle avec ceux de Mārici, Kurukullā, Vasundharā, Dhanadā, Saṃpatpradā, divinités féminines qui composent la classe tantrique des Vidyādevīs ou Māṭrkādevīs. Mais dans ces litanies interminables les personnages sont si vagues qu'on se demande si les noms représentent encore des individualités divines distinctes, ou bien s'ils ne sont plus que le souvenir incompris des personnages mythiques qui survivent ainsi aux vieux panthéons indiens pour aller se confondre dans l'océan de l'hindouisme.
+
+En résumé, Tārā est une divinité du buddhisme du Nord, dont le culte se propage en dehors de l'Inde dans toutes les régions où ce buddhisme est porté. Lorsque le buddhisme devient de plus en plus le culte adressé aux bodhisattvas et aux dhyānibuddhas, Tārā représente, sous forme de leur compagne, un élément féminin dont la prépondérance va croissant dans la croyance comme dans le rituel. Cet élément finira même par prévaloir sur le reste de ce panthéon composite.
+
+**Fin.**
