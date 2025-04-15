@@ -40,9 +40,13 @@
 
 ## [10\. addendum editoris : Devanāgarī (देवनागरी).](#10-addendum-editoris--devanāgarī-देवनागरी-1)
 
-# [11\. Traduction.](#11-traduction-1)
+# [11\. Traduction de la Liste des cent huit Noms d'Ārya Tārā.]()
 
-...
+# [12\. Ekaviṃśatistotra.]()
+
+## [12\. addendum editoris : Devanāgarī (देवनागरी).]()
+
+# [13. Conclusion.]()
 
 ---
 
@@ -1689,6 +1693,12 @@ v. 12. --- abharaṇajvale.
 Les vers des strophes de louange de la fin sont donnes dans un ordre different par le ms. B., mais le texte en est identique.
 
 ---
+
+# 12\. addendum editoris : Devanāgarī (देवनागरी).*
+
+*) [IAST.](https://arshavidya.org.uk/vyasa.html)
+
+...
 
 # 13\. Conclusion.
 
