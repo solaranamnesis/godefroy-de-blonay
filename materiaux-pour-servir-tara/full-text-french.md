@@ -1344,6 +1344,59 @@ sarasvatī viśālākṣī prajñāśrībuddhivardhanī ।30।
 
 *) D'ap. B. --- A. : lokatrī.
 
+oṃ dhṛtidā puṣṭidā svāhā oṃkārā kāmarūpiṇī ।  
+sarvasatvahitodyuktā saṃgrāme tāraṇī jayā ।31।
+
+prajñāpāramitādevī āryātārā manoramā ।  
+dundubhisakhinī pūrṇavidyārājñī priyaṃvadā ।32।
+
+candrānanā mahāgaurī ajitā pītavāsasā ।  
+mahāmāyā mahāśvetā mahābalaparākramā ।33।
+
+mahāraudrī mahācaṇḍī duṣṭasatvanisūdanī ।  
+praśāntā śāntarūpā ca vijayā jvalanaprabhā ।34।
+
+vidyunmālī dhvajī khaḍgī cakrī cāpayutāyudhā ।  
+jambhanī stambhanī kālī kālarātrī niśācarī ।35।
+
+rakṣaṇī mohinī śāntā kāntā vibhāvinī śubhā ।  
+brāhmaṇī vedamātā ca guhā ca guhavāsinī ।36।
+
+māṅgalyā śaṅkarī* saumyā jātavedā manojavā ।  
+kāpālinī mahābhāgā* saṃdhyā satyāparājitā ।37।
+
+*) A. Sakari.
+
+*) B. --- vegā --- ce qui éviterait un double, v. v. 39.
+
+sārthavāhā kṛpadṛṣṭī naṣṭamārgapradarśanī ।  
+varadā śāsanī śāstrī strīrūpāmitavikramā ।38।
+
+śavalī yoginī siddhā cāṇḍālī cāṃṛtā dhruvā ।  
+dhanyā puṇyā mahābhāgā subhāgā priyadarśanī ।39।
+
+kṛtāntatrāsanī bhīmā ugrā ugramahātapā ।  
+jagadekahitodyuktā śaraṇyā bhaktivatsalā ।40।
+
+vāgīśvarī śivā sūkṣmā nityā sarvārthamātṛkā* ।  
+sarvārthasādhanī bhadrā goptrī dhātrī dhanaṃjayā ।41।
+
+*) B. donne : °manuṣa. et C. : sarvatracānuga.
+
+abhayā gautamī puṇyā śrīmallokeśvarātmajā* ।  
+tārā nāmaguṇānantā sarvāśāparipūraṇī ।42।
+
+*) C. donne prokta pour puṇyā. Corr. d'ap. B. --- A. : jeti.
+
+nāmāṣṭottaraśatakaṃ tat kīrtitaṃ hitena vaḥ ।  
+rahasyam adbhutaṃ guhyaṃ devānām api durlabham ।43।
+
+saubhāgyaṃ bhāgyakaraṇaṃ sarvakīlbiṣanāśanam ।  
+sarvavyādhipraśamanaṃ sarvasatvasukhāvaham ।44।
+
+trikāraṃ yaḥ paṭhed dhīmān śuciḥ snānasamāhitaḥ ।  
+acireṇaiva kālena rājyaśriyam avāpnuyāt ।45।
+
 ...
 
 # 10\. _addendum editoris_ : Devanāgarī (देवनागरी).*
