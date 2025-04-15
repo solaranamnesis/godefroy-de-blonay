@@ -40,13 +40,13 @@
 
 ## [10\. addendum editoris : Devanāgarī (देवनागरी).](#10-addendum-editoris--devanāgarī-देवनागरी-1)
 
-# [11\. Traduction de la Liste des cent huit Noms d'Ārya Tārā.]()
+# [11\. Traduction de la Liste des cent huit Noms d'Ārya Tārā.](#11-traduction-de-la-liste-des-cent-huit-noms-dārya-tārā-1)
 
-# [12\. Ekaviṃśatistotra.]()
+# [12\. Ekaviṃśatistotra.](#12-ekaviṃśatistotra-1)
 
-## [12\. addendum editoris : Devanāgarī (देवनागरी).]()
+## [12\. addendum editoris : Devanāgarī (देवनागरी).](#12-addendum-editoris--devanāgarī-देवनागरी-1)
 
-# [13. Conclusion.]()
+# [13. Conclusion.](#13-conclusion-1)
 
 ---
 
