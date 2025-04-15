@@ -999,6 +999,8 @@ bhūmer nirvāntacāmīkaranikaranidhīn nirddhanā prāpnuvanti ॥
 
 *) [IAST.](https://arshavidya.org.uk/vyasa.html)
 
+**आर्यतारास्रग्धरास्तोत्र**
+
 ओम् नमो भगवत्यै आर्यतारायै॥
 
 १\. --- बालार्कालोकताम्रप्रवरसुरशिरश्चारुचूडामणिश्रीसंपत्संपर्करागनातिचिररचितालक्तकव्यक्तभक्ती ।  
