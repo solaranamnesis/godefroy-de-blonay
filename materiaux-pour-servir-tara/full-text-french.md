@@ -1971,6 +1971,8 @@ Les vers des strophes de louange de la fin sont donnes dans un ordre different p
 
 *) [IAST.](https://arshavidya.org.uk/vyasa.html)
 
+**एकविंशतिस्तोत्र**
+
 १\. --- नमस् तारे तुरे वीरे क्षणद्युतिनिभेक्षणे ।  
 त्रैलोक्यनाथवक्त्राब्जविकसत्केसरोद्भवे ॥
 
