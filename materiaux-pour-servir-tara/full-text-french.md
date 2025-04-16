@@ -1595,7 +1595,7 @@ sa dīrghakālam āyuṣmān śriyaṃ ca labhate naraḥ ।50।
 devā nāgās tathā yakṣā gandharvāḥ kaṭapūtanāḥ ।  
 piśācarākṣasā bhūtā mātaro raudratejasaḥ ।51।
 
-*kṣayāpasmārakārakaś caiva kṣatakākhorḍakādayaḥ* ।  
+* kṣayāpasmārakārakaś caiva kṣatakākhorḍakādayaḥ* ।  
 ḍākinyās tārakā pretāḥ skandā mārā mahāgrahāḥ ।52।
 
 *) B. --- bhayāni.
