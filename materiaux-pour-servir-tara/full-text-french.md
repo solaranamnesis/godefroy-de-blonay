@@ -1,4 +1,4 @@
-# Matériaux pour servir à l'Histoire de la Déesse Buddhique Tārā.
+# Matériaux pour servir à l'Histoire de la Déesse Bouddhique Tārā.
 
 ## Par Godefroy de Blonay,
 
@@ -50,33 +50,33 @@
 
 ---
 
-Le présent travail a pour sujet la déesse buddhique Tārā. Jusqu'ici cette divinité n'était connue que par les rares mentions que lui accordaient les ouvrages généraux ; on savait aussi qu'un certain nombre d'hymnes adressés à cette divinité existaient en manuscrit dans les collections buddhiques.
+Le présent travail a pour sujet la déesse bouddhique Tārā. Jusqu'ici cette divinité n'était connue que par les rares mentions que lui accordaient les ouvrages généraux ; on savait aussi qu'un certain nombre d'hymnes adressés à cette divinité existaient en manuscrit dans les collections bouddhiques.
 
-Je me suis proposé de coordonner les documents principaux que j'ai recueillis sur Tārā, afin qu'il fût possible de se rendre compte du rôle que cette divinité et son culte ont joue dans le buddhisme.
+Je me suis proposé de coordonner les documents principaux que j'ai recueillis sur Tārā, afin qu'il fût possible de se rendre compte du rôle que cette divinité et son culte ont joue dans le bouddhisme.
 
-Le hasard a mis à ma disposition trois textes qui caractérisent heureusement les différents aspects du sentiment religieux dans le buddhisme :
+Le hasard a mis à ma disposition trois textes qui caractérisent heureusement les différents aspects du sentiment religieux dans le bouddhisme :
 
-Le _Sragdharā stotra_, composé par Sarvajñamitra, un lettré distingué qui se meut à l'aise dans les difficultés d'un mètre compliqué et qui met les ressources d'un style savant au service d'une foi ardente et d'une dévotion exaltée. Ce petit poème peut figurer parmi les inspirations les plus heureuses de la poésie personnelle à côté des _Cent cinquante Stances de Mātṛceṭa_* qu'I-Tsing admirait comme un chef-d'œuvre, et surpasse assurément en mérite littéraire les hymnes buddhiques publiés jusqu'ici.*
+Le _Sragdharā stotra_, composé par Sarvajñamitra, un lettré distingué qui se meut à l'aise dans les difficultés d'un mètre compliqué et qui met les ressources d'un style savant au service d'une foi ardente et d'une dévotion exaltée. Ce petit poème peut figurer parmi les inspirations les plus heureuses de la poésie personnelle à côté des _Cent cinquante Stances de Mātṛceṭa_* qu'I-Tsing admirait comme un chef-d'œuvre, et surpasse assurément en mérite littéraire les hymnes bouddhiques publiés jusqu'ici.*
 
 *) Fujishima : _Deux chapitres_, etc.
 
 *) Minayeff : _Mémoires de la Société Archéologique_, t. 2, fasc. 1, etc.
 
-Les _Cent huit Noms de Tārā_ ou _Āryatārānāmāṣṭottaraśatakastotra_ forment avec l'œuvre de Sarvajñamitra un étrange contraste. Pour parfaire le nombre consacré, qu'une superstition commune imposait aux buddhistes aussi bien qu'aux brahmanes, l'auteur anonyme fait défiler une litanie d'épithètes incolores aisément transportables d'une divinité à l'autre, et qui n'ont d'autre vertu que de concourir au total obligatoire. La liste des _Cent huit Noms_ encadrée comme à l'ordinaire dans un dialogue, entre Vajrapāṇi et Avalokita, est sans nul doute un chapitre isolé d'un de ces tantras de Tārā auxquels Sarvajñamitra fait allusion, où l'adoration de la déesse se mêlait à des pratiques magiques ou répugnantes.*
+Les _Cent huit Noms de Tārā_ ou _Āryatārānāmāṣṭottaraśatakastotra_ forment avec l'œuvre de Sarvajñamitra un étrange contraste. Pour parfaire le nombre consacré, qu'une superstition commune imposait aux bouddhistes aussi bien qu'aux brahmanes, l'auteur anonyme fait défiler une litanie d'épithètes incolores aisément transportables d'une divinité à l'autre, et qui n'ont d'autre vertu que de concourir au total obligatoire. La liste des _Cent huit Noms_ encadrée comme à l'ordinaire dans un dialogue, entre Vajrapāṇi et Avalokita, est sans nul doute un chapitre isolé d'un de ces tantras de Tārā auxquels Sarvajñamitra fait allusion, où l'adoration de la déesse se mêlait à des pratiques magiques ou répugnantes.*
 
-*) Les catalogues nous font connaître les titres de plusieurs ouvrages qui se rattachent au culte tantrique de Tārā sans spécifier le caractère brahmanique ou buddhique de la divinité : _Tārāpaddhati_, 170 p., 800 vers ; _Tārāpūjanapaddhati_, 120 p., 1200 vers ; _Tārārahasyavārttika_, 250 p., 6000 vers ; _Tārābhaktisudhārṇava_ ; _Tārānityārcanavidhi_ (avec les mille noms de la déesse). Ces textes citent d'autres ouvrages intéressant Tārā : _Tārākāraṇīya_, _Tārārṇava_, _Tāropaniṣad_. Voir : _Paṇḍit Devīprasāda_, Catalogue of the sansc. mss. existing in Oudh Province for the year 1889, 15. 21, 22, 23, et _India Office, Cat. of sansc. mss._, n° 2596 et 2603).
+*) Les catalogues nous font connaître les titres de plusieurs ouvrages qui se rattachent au culte tantrique de Tārā sans spécifier le caractère brahmanique ou bouddhique de la divinité : _Tārāpaddhati_, 170 p., 800 vers ; _Tārāpūjanapaddhati_, 120 p., 1200 vers ; _Tārārahasyavārttika_, 250 p., 6000 vers ; _Tārābhaktisudhārṇava_ ; _Tārānityārcanavidhi_ (avec les mille noms de la déesse). Ces textes citent d'autres ouvrages intéressant Tārā : _Tārākāraṇīya_, _Tārārṇava_, _Tāropaniṣad_. Voir : _Paṇḍit Devīprasāda_, Catalogue of the sansc. mss. existing in Oudh Province for the year 1889, 15. 21, 22, 23, et _India Office, Cat. of sansc. mss._, n° 2596 et 2603).
 
 L'_Ekaviṃśatistotra_ est encore un fragment tantrique où les formules d'adoration se suivent à l'aventure sans que l'auteur ait pris même la peine de leur donner un cadre. La langue, la métrique et la raison sont violées avec un égale indifférence.
 
-Mon travail eût été incomplet si je n'avait pas recherché les traces de Tārā dans les pays étrangers à l'Inde, où le buddhisme a trouvé une grande faveur. Dans la littérature chinoise, je puis signaler plusieurs passages relatifs à Tārā, et je tiens à remercier M. Specht de l'obligeance avec laquelle il m'a prêté son précieux concours en ce domaine.
+Mon travail eût été incomplet si je n'avait pas recherché les traces de Tārā dans les pays étrangers à l'Inde, où le bouddhisme a trouvé une grande faveur. Dans la littérature chinoise, je puis signaler plusieurs passages relatifs à Tārā, et je tiens à remercier M. Specht de l'obligeance avec laquelle il m'a prêté son précieux concours en ce domaine.
 
 Le Tripiṭaka chinois donne les titres des hymnes sanscrits que je publie ; le contenu que j'ai dû me contenter d'étudier sommairement semble répondre en partie seulement à mes textes.
 
-Au Tibet, Tārā semble avoir été spécialement en honneur. Le buddhisme a eu pour propagateur dans cette région le roi Srong-Tsan-Gampo. Les deux reines ses épouses le secondèrent de leur zèle et restèrent si populaires que la légende en fit les Tārās tibétaines.
+Au Tibet, Tārā semble avoir été spécialement en honneur. Le bouddhisme a eu pour propagateur dans cette région le roi Srong-Tsan-Gampo. Les deux reines ses épouses le secondèrent de leur zèle et restèrent si populaires que la légende en fit les Tārās tibétaines.
 
-Au 16e siècle encore, Tāranātha, l'historien du buddhisme indien, consacre une partie de son ouvrage à la biographie de saints personnages voués au culte de Tārā.
+Au 16e siècle encore, Tāranātha, l'historien du bouddhisme indien, consacre une partie de son ouvrage à la biographie de saints personnages voués au culte de Tārā.
 
-Ces biographies ne valent pas seulement par l'intérêt du conte,mais elles représentent certainement une tradition ancienne fondée sur des documents indiens. L'introduction de Jinarakṣita à son commentaire du _Sragdharā stotra_ montre que les légendes recueillies par Tāranātha étaient déjà constituées définitivement dans l'Inde longtemps avant la compilation de l'auteur tibétain.
+Ces biographies ne valent pas seulement par l'intérêt du conte, mais elles représentent certainement une tradition ancienne fondée sur des documents indiens. L'introduction de Jinarakṣita à son commentaire du _Sragdharā stotra_ montre que les légendes recueillies par Tāranātha étaient déjà constituées définitivement dans l'Inde longtemps avant la compilation de l'auteur tibétain.
 
 Qu'il me soit permis de remercier mon maître, M. Sylvain Lévi, des conseils et de l'aide patiente dont il n'a cessé de favoriser mes recherches. Si, grâce à lui, mon travail a quelque mérite, c'est pour moi un devoir et un privilège que de lui témoigner ici ma profonde gratitude.
 
@@ -192,7 +192,7 @@ Wilson, H. H. W. --- _Works_, etc., London, 1861-1877.
 
 # 1\. Sources Littéraires.
 
-Les documents les plus complets que nous ayons sur le personnage et le culte de la déesse buddhique Tārā appartiennent à la littérature sanscrite népalaise. Ce sont le _Sragdharāstotra_ avec son introduction dans la ṭīkā de Jinarakṣita, la liste des _Cent huit noms de Tārā : Āryatārānāmāṣṭottaraśataka_, et l'_Hymne en vingt et un vers : Ekaviṃśatistotra_.
+Les documents les plus complets que nous ayons sur le personnage et le culte de la déesse bouddhique Tārā appartiennent à la littérature sanscrite népalaise. Ce sont le _Sragdharāstotra_ avec son introduction dans la ṭīkā de Jinarakṣita, la liste des _Cent huit noms de Tārā : Āryatārānāmāṣṭottaraśataka_, et l'_Hymne en vingt et un vers : Ekaviṃśatistotra_.
 
 Il a dû exister encore d'autres textes relatifs à Tārā qui seraient précieux à retrouver ; c'est à Tāranātha que nous devons d'en connaître au moins deux par leurs titres ; il dit à propos de l'ācārya Rāhulabhadra : « Son histoire est racontée dans la _Description de la vie de Tārā._* » Les informations de Tāranātha ne déterminent malheureusement ni la date ni l'origine sanscrite ou tibétaine de cet écrit.
 
@@ -216,11 +216,11 @@ Le catalogue du Kandjour nous apprend l'existence dans le canon tibétain des te
 
 On trouve dans le Tandjour, Rgyud 1, 9 un Tārāmahāyogatantra.
 
-La source la plus féconde en renseignements sur le grand développement que prit le culte de Tārā est l'_Histoire du Buddhisme aux Indes_ de Tāranātha. Le culte de cette divinité devait avoir conservé une importance particulière pour que l'auteur de l'_Histoire du Buddhisme_ nous rapporte une quantité relativement considérable de renseignements au sujet de Tārā ; elle avait parmi les plus notables ācāryas de l'Inde des sectateurs fervents.
+La source la plus féconde en renseignements sur le grand développement que prit le culte de Tārā est l'_Histoire du Bouddhisme aux Indes_ de Tāranātha. Le culte de cette divinité devait avoir conservé une importance particulière pour que l'auteur de l'_Histoire du Bouddhisme_ nous rapporte une quantité relativement considérable de renseignements au sujet de Tārā ; elle avait parmi les plus notables ācāryas de l'Inde des sectateurs fervents.
 
-La popularité de Tārā au Tibet se constate dès une époque assez ancienne : Les Tibétains ont identifié Tārā avec les deux femmes du roi Srong-Tsan-Gampo, l'introducteur du buddhisme en ce pays (septième siècle CE).* Les deux épouses royales étaient, en tibétain : Dolkar (pron. Dö-Kar') et Dol-jang (pron. Dö-jang ou Dö-ngön), la Tārā blanche et la Tārā verte. Elles portent aussi l'une et l'autre le nom de S'grolma (pron. 'Döma'). L'une était princesse népalaise,* l'autre princesse chinoise* ; ces deux princesses personnifient donc deux influences buddhiques aussi intenses l'une que l'autre.
+La popularité de Tārā au Tibet se constate dès une époque assez ancienne : Les Tibétains ont identifié Tārā avec les deux femmes du roi Srong-Tsan-Gampo, l'introducteur du bouddhisme en ce pays (septième siècle CE).* Les deux épouses royales étaient, en tibétain : Dolkar (pron. Dö-Kar') et Dol-jang (pron. Dö-jang ou Dö-ngön), la Tārā blanche et la Tārā verte. Elles portent aussi l'une et l'autre le nom de S'grolma (pron. 'Döma'). L'une était princesse népalaise,* l'autre princesse chinoise* ; ces deux princesses personnifient donc deux influences bouddhiques aussi intenses l'une que l'autre.
 
-*) Voir Schlagintweit. _Buddhisme au Tibet_, 40-42, Waddel, _J. R. A. S._, janvier 1894.
+*) Voir Schlagintweit. _Bouddhisme au Tibet_, 40-42, Waddel, _J. R. A. S._, janvier 1894.
 
 *) Nommée Vajrabhrūkuṭi ou Bribsun fille du roi Prabhāvarman ou Aṃśuvarman, 630-640 CE.
 
@@ -268,11 +268,11 @@ Le second texte donne aussi une transcription en caractères chinois d'un texte 
 
 *). _Ta Ts'ang King_, b. 27, c. 13.
 
-Le nombre des indications fournies par le buddhisme chinois donne le droit de penser que le buddhisme japonais a conservé aussi un souvenir plus ou moins vivace de Tārā. Malgré les efforts que nous avons tentés dans cette direction, à cause peut-être de l'insuffisance des moyens d'investigation dont nous disposions, il ne nous a pas été donné de suivre Tārā jusqu'au Japon.
+Le nombre des indications fournies par le bouddhisme chinois donne le droit de penser que le bouddhisme japonais a conservé aussi un souvenir plus ou moins vivace de Tārā. Malgré les efforts que nous avons tentés dans cette direction, à cause peut-être de l'insuffisance des moyens d'investigation dont nous disposions, il ne nous a pas été donné de suivre Tārā jusqu'au Japon.
 
-M. Horiu Toki, d'après des notes prises dans les documents japonais du Musée Guimet, a pu nous signaler le nom de Ārya Tārā bodhisattva passé au Japon, sous la forme de Ro-tara-ni-bi. « Ellle est comme le bateau qui fait traverser à l'homme l'Océan, et lui procure la liberté (d'après le Yoga-ki). »
+M. Horiu Toki, d'après des notes prises dans les documents japonais du Musée Guimet, a pu nous signaler le nom de Ārya Tārā bodhisattva passé au Japon, sous la forme de Ro-tara-ni-bi. « Elle est comme le bateau qui fait traverser à l'homme l'Océan, et lui procure la liberté (d'après le Yoga-ki). »
 
-Le buddhisme du sud n'accorde point de place aux énergies féminines des Buddhas (_śaktis_), aussi Tārā est-elle restée étrangère à la littérature sacrée de Ceylan.*
+Le bouddhisme du sud n'accorde point de place aux énergies féminines des Buddhas (_śaktis_), aussi Tārā est-elle restée étrangère à la littérature sacrée de Ceylan.*
 
 *) Barth. _Bulletin des religions de l'Inde_, 1889, 2 part. p. 5.
 
@@ -280,7 +280,7 @@ Le buddhisme du sud n'accorde point de place aux énergies féminines des Buddha
 
 # 2\. Documents Épigraphiques.
 
-Les documents épigraphiques seraient les fondements historiques les plus sûrs pour assigner des dates précises aux phases du culte de Tārā aux Indes. D'après les légendes il y a eu une quantité de temples et de collèges consacrés à ce culte. Tāranātha mentionne des fondations de ce genre extrêmement nombreuses. Un examen détaillé des ruines buddhiques de l'Inde permettra peut-être de trouver plus de vestiges que nous n'avons pu le faire en nous aidant de ce qui a été publié jusqu'à présent.
+Les documents épigraphiques seraient les fondements historiques les plus sûrs pour assigner des dates précises aux phases du culte de Tārā aux Indes. D'après les légendes il y a eu une quantité de temples et de collèges consacrés à ce culte. Tāranātha mentionne des fondations de ce genre extrêmement nombreuses. Un examen détaillé des ruines bouddhiques de l'Inde permettra peut-être de trouver plus de vestiges que nous n'avons pu le faire en nous aidant de ce qui a été publié jusqu'à présent.
 
 Un document précieux, le plus ancien en date, se trouve dans l'île de Java. M. Brandes l'a publié tout au long, texte et traduction, sous le titre : _Een nāgarī opschrift gevonden tusschen Kalasan en Prambanan_.*
 
@@ -298,11 +298,11 @@ Le texte mutilé au début est de douze strophes en vers, soit vasantatilaka, so
 
 *) Fonctionnaires dont on ignore le rôle précis.
 
-Dans cette inscription, rien qui soit très personnel à Tārā et qui se rapproche de nos hymnes, d'autant plus que la première strophe est particulièrement mutilée. Néanmoins, il est important à constater que Tārā a pénétré en même temps que le buddhisme à Java où son culte, comme partout ailleurs, est attaché à la tradition du Mahāyāna.
+Dans cette inscription, rien qui soit très personnel à Tārā et qui se rapproche de nos hymnes, d'autant plus que la première strophe est particulièrement mutilée. Néanmoins, il est important à constater que Tārā a pénétré en même temps que le bouddhisme à Java où son culte, comme partout ailleurs, est attaché à la tradition du Mahāyāna.
 
 La date de l'inscription, donnée dans l'ère Śaka, correspond à 779 CE (un siècle après Sarvajñamitra).
 
-Un des documents les plus importants a été publié par M. Fleet* ; Elliot en avait donné une transcription.* C'est une inscription trouvée sur une tablette de pierre, près d'un temple jaina, dans le fort de Danṃbal. Les emblèmes figurés sur la pierre sont décrits au chapitre suivant.* Le texte est édité d'après un estampage de M. H. Cousens. Le texte est en écriture vieux canarais, délicatement gravé et parfaitement conservé. Autour du sommet de la tablette deux longues lignes de même écriture contiennent trois vers sanscrits. L'inscription est du temps du roi Cālukya Tribhuvanamalla ou Vikramāditya 6, elle est datée du Juva saṃvatsara, la dix-neuvième année du Cālukya-Vikramavarṣa, ère qui fut fondée par ce prince et qui part de son avènement en l'année śaka 1017, soit 1095-6 CE. L'inscription donne le nom de la reine Lakṣmādevī, qui gouvernait la région nommée « les dix-huit agrahāras » et la ville de Dharmapura ou Dharmavolal, la ville de la religion, qui est certainement Daṃbal même. Il y avait alors à Daṃbal un vihāra buddhique construit par les seize seṭṭhis (Śreṣṭhin, marchands) de l'endroit, et un vihāra de Tārādevī construit par le seṭṭhi Saṃgavaya de Lokkiguṇḍi, tandis que cette ville était jaina et que ces marchands appartenaient à la secte Vīrabalañja, qui plus tard adopta le culte lingaïte de Basava* : une preuve de plus de la profonde influence que tous ces cultes hindous parallèles exerçaient les uns sur les autres.
+Un des documents les plus importants a été publié par M. Fleet* ; Elliot en avait donné une transcription.* C'est une inscription trouvée sur une tablette de pierre, près d'un temple jaina, dans le fort de Danṃbal. Les emblèmes figurés sur la pierre sont décrits au chapitre suivant.* Le texte est édité d'après un estampage de M. H. Cousens. Le texte est en écriture vieux canarais, délicatement gravé et parfaitement conservé. Autour du sommet de la tablette deux longues lignes de même écriture contiennent trois vers sanscrits. L'inscription est du temps du roi Cālukya Tribhuvanamalla ou Vikramāditya 6, elle est datée du Juva saṃvatsara, la dix-neuvième année du Cālukya-Vikramavarṣa, ère qui fut fondée par ce prince et qui part de son avènement en l'année śaka 1017, soit 1095-6 CE. L'inscription donne le nom de la reine Lakṣmādevī, qui gouvernait la région nommée « les dix-huit agrahāras » et la ville de Dharmapura ou Dharmavolal, la ville de la religion, qui est certainement Daṃbal même. Il y avait alors à Daṃbal un vihāra bouddhique construit par les seize seṭṭhis (Śreṣṭhin, marchands) de l'endroit, et un vihāra de Tārādevī construit par le seṭṭhi Saṃgavaya de Lokkiguṇḍi, tandis que cette ville était jaina et que ces marchands appartenaient à la secte Vīrabalañja, qui plus tard adopta le culte lingaïte de Basava* : une preuve de plus de la profonde influence que tous ces cultes hindous parallèles exerçaient les uns sur les autres.
 
 *) _Indian Antiquary_, v. 10, p. 185. Je cite presque textuellement cet article.
 
@@ -324,7 +324,7 @@ Voici la traduction des trois lignes sanscrites qui encadrent l'image :
 
 L'épigraphie de Tārā est étroitement apparentée à sa littérature ; elle est dans l'une et dans l'autre la sauveuse par excellence, celle qui prend soin d'écarter de ses adeptes les craintes et les supplices ; elle occupe une place prépondérante à côté du Buddha qui lui doit sa sagesse, et dont elle est le principal ornement. Les vers sanscrits de l'inscription sont presque des citations de nos stotras, ou du moins ils les reflètent indirectement par l'intermédiaire d'une tradition précise et fidèle.
 
-Une inscription buddhique de Śrāvastī (Oudh), plus récente encore que celle de Daṃbal puisqu'elle date de l'an 1219 CE, contient une mention de Tārā qui suffit à prouver la persistance vivace de son culte.*
+Une inscription bouddhique de Śrāvastī (Oudh), plus récente encore que celle de Daṃbal puisqu'elle date de l'an 1219 CE, contient une mention de Tārā qui suffit à prouver la persistance vivace de son culte.*
 
 *) _Indian Antiquary_, vol. 17, p. 62.
 
@@ -381,7 +381,7 @@ Le Népal, le Tibet et la Mongolie sont d'accord sur la répartition de ces coul
 
 Au Tibet,* comme nous l'avons vu, on connaît deux Tārās : Dolkar et Doljang. On les représente toutes deux dans la même attitude ; le pied droit pendant devant le trône, la main droite tenant le lotus bleu. Leur teint est différent : Dolkar est blanche, Doljang est verte. Elles sont censées créées par le rayon bleu qui sortait de l'œil gauche d'Amitābha s'incarnant en elles.* Certaines représentations de Doljang montrent cet œil de sagesse dessiné dans la paume de ses mains et sous la plante de ses pieds ; ces marques ont même une ressemblance surprenante avec les stigmates chrétiens.* Le Musée Guimet* possède une statuette de bronze représentant Doljang ou Dolkar assise sur un lotus, la jambe droite pendante, coiffée d'une couronne.
 
-*) Schlagintweit. _Le Buddhisme au Thibet_, p. 42.
+*) Schlagintweit. _Le Bouddhisme au Thibet_, p. 42.
 
 *) Schlagintweit, p. 54.
 
@@ -391,7 +391,7 @@ Au Tibet,* comme nous l'avons vu, on connaît deux Tārās : Dolkar et Doljang. 
 
 La Tārā japonaise tiendrait de très près à la Tārā tibétaine d'après le témoignage de M. Horiu Toki, fondée sur le Yoga-ghi-Ki. Elle serait verte mêlée de blanc, née des yeux de Kouan-in, elle se nomme aussi Fou-ghen, et fait partie du groupe de Kouan-in.
 
-En somme, à en juger sur ces indications trop rares, rien n'a distingué Tārā, au point de vue artistique, de bien d'autres figures féminines que l'art hindou a produites ; de même que la littérature l'a habillée non seulement de toutes les épithètes buddhiques en vogue, mais encore des qualités et attributs chers au panthéon brahmanique, de même il est difficile de croire qu'une forme extérieure bien arrêtée ait jamais été consacrée à Tārā.
+En somme, à en juger sur ces indications trop rares, rien n'a distingué Tārā, au point de vue artistique, de bien d'autres figures féminines que l'art hindou a produites ; de même que la littérature l'a habillée non seulement de toutes les épithètes bouddhiques en vogue, mais encore des qualités et attributs chers au panthéon brahmanique, de même il est difficile de croire qu'une forme extérieure bien arrêtée ait jamais été consacrée à Tārā.
 
 Dans le _Sragdharā Stotra_, quoiqu'au point de vue de la charité Tārā ne varie jamais, son apparence néanmoins revêt les aspects les plus divers ; on la voit les pieds illuminés de l'éblouissement de ceux qui l'adorent,* dorée comme le soleil levant,* courbant sous son poids les têtes d'Indra, Rudra et Brahmā, se tenir dans l'attitude de l'ālīḍha qui est une de celles du tireur d'arc, la jambe droite en avant, la gauche repliée* ; ou bien, emportée de colère* elle est revêtue d'armes étincelantes et des serpents affreux lui enserrent les bras, analogue à Kālī* ; ou bien, plus calme,* tous les personnages célestes et terrestres lui offrent leurs hommages et, conclut Sarvajñamitra, « la déesse pareille au cristal qui reflète tout ce qui l'entoure, à sa fantaisie se pare de la pourpre du soleil levant, plus rouge que la laque, d'une couleur sombre plus sombre que le saphir ou la feuille écrasée du lotus, d'un blanc plus blanc que le lait baratté de l'océan.* »
 
@@ -433,7 +433,7 @@ Dans la liste des _Cent huit noms d'Ārya Tārā_ comme dans toutes les énumér
 
 # 4\. Le Rôle de Tārā dans Tāranātha.
 
-Tāranātha, nous l'avons dit, nous fournit dans son _Histoire du Buddhisme_, les noms et l'histoire d'une série de fidèles de Tārā. Il faut les reprendre un à un pour suivre, d'après un ordre aussi chronologique que possible, le développement de ce culte au travers des cinquième, sixième, septième et huitième siècles de notre ère.
+Tāranātha, nous l'avons dit, nous fournit dans son _Histoire du Bouddhisme_, les noms et l'histoire d'une série de fidèles de Tārā. Il faut les reprendre un à un pour suivre, d'après un ordre aussi chronologique que possible, le développement de ce culte au travers des cinquième, sixième, septième et huitième siècles de notre ère.
 
 Le premier personnage en date qui soit mentionné est l'ācārya Kāla* dont la personnalité est bien difficile à identifier au milieu du grand nombre de noms qui lui sont donnés* : Kāla, Mātṛceṭa,* Pitṛceṭa, Aśvaghoṣa, Durdharṣa, Durdharṣakāla, Dhārmika, Subhūti, Maticitra, Śūra.
 
@@ -451,7 +451,7 @@ Tāranātha place la vie de Kāla sous les règnes de Bindusāra* fils de Candra
 
 *) Tār., p. 92.
 
-Kāla* ou Mātṛceṭa, car c'ast sous ces deux noms qu'il semble le plus connu, est petit-fils d'un marchand de la ville de Khorta qui avait dix filles fidèles à la loi du Buddha ; la dernière épousa un brahmane nommé Saṃghaguhya qui devint père de Kāla.* Kāla devint fort savant dans la connaissance des Vedas et des Vedāṅgas, il étudia ensuite les Tantras et les Mantras et devint un adversaire actif du buddhisme. Sa mère, restée attachée à la religion, l'envoya à Nālanda dans la persuasion qu'il s'y convertirait. Effectivement, arrivé dans le Magadha* il devint sthavira, apprit le Tripiṭaka et vit en songe* apparaître la vénérable Tārā qui l'invita à composer en l'honneur du Buddha toutes sortes de chants de louanges afin de se laver des péchés commis contre la religion. Il composa alors une centaine d'hymnes à Buddha et l'hymne en cent cinquante ślokas* qu'admirèrent Asaṅga et Vasubandhu et qu'on trouve dans le Tanjour attribué à Vāgbhaṭa, fils de Saṃghagupta* ; un nom de plus à ajouter à la liste de ceux de Kāla.*
+Kāla* ou Mātṛceṭa, car c'ast sous ces deux noms qu'il semble le plus connu, est petit-fils d'un marchand de la ville de Khorta qui avait dix filles fidèles à la loi du Buddha ; la dernière épousa un brahmane nommé Saṃghaguhya qui devint père de Kāla.* Kāla devint fort savant dans la connaissance des Vedas et des Vedāṅgas, il étudia ensuite les Tantras et les Mantras et devint un adversaire actif du bouddhisme. Sa mère, restée attachée à la religion, l'envoya à Nālanda dans la persuasion qu'il s'y convertirait. Effectivement, arrivé dans le Magadha* il devint sthavira, apprit le Tripiṭaka et vit en songe* apparaître la vénérable Tārā qui l'invita à composer en l'honneur du Buddha toutes sortes de chants de louanges afin de se laver des péchés commis contre la religion. Il composa alors une centaine d'hymnes à Buddha et l'hymne en cent cinquante ślokas* qu'admirèrent Asaṅga et Vasubandhu et qu'on trouve dans le Tanjour attribué à Vāgbhaṭa, fils de Saṃghagupta* ; un nom de plus à ajouter à la liste de ceux de Kāla.*
 
 *) Tār., p. 90.
 
@@ -551,7 +551,7 @@ Candragomin est élève laïc de l'école d'Asaṅga* de Vasubandhu et de Sthira
 
 *) Tār., p. 156.
 
-Infatigable défenseur de l'idéalisme d'Āryāsaṅga contre Candrakīrti qui suivait la doctrine de Buddhapālita* dont on le considérait comme une réincarnation, Candragomin finit probablemont par l'emporter après sept ans de lutte, ce que Wassilief conclut du fait que Candragomin resta à Nālanda, tandis que son adversaire s'en alla au sud dans le Konkan.*
+Infatigable défenseur de l'idéalisme d'Āryāsaṅga contre Candrakīrti qui suivait la doctrine de Buddhapālita* dont on le considérait comme une réincarnation, Candragomin finit probablement par l'emporter après sept ans de lutte, ce que Wassilief conclut du fait que Candragomin resta à Nālanda, tandis que son adversaire s'en alla au sud dans le Konkan.*
 
 *) Tār., p. 153.
 
@@ -613,7 +613,7 @@ D'autre part, nous trouvons dans la _Rājataraṅgiṇī_* la mention suivante :
 śrīmān kayyavihāro'pi tenaiva vidadhe' dbhutaḥ ।  
 bhikṣuḥ Sarvajñamitro'bhūt kramād yatra jinopamaḥ ॥
 
-*) Ce couvent, avait été bâti par le roi de Lāṭa nommé Kayya, à une époque où nous voyons le buddhisme fleurir d'une façon très intense, si nous en croyons la _Rājataraṅgiṇī_.
+*) Ce couvent, avait été bâti par le roi de Lāṭa nommé Kayya, à une époque où nous voyons le bouddhisme fleurir d'une façon très intense, si nous en croyons la _Rājataraṅgiṇī_.
 
 Or, cet événement se place sous le règne de Lalitāditya,* suivi de celui de Kuvalayāpīḍa,* qui ne régna qu'un an ; après lui régna Vajrāditya ou Vappiyaka, ou aussi Lalitāditya,* roi méchant et de mœurs cruelles* : « Il livra, en les vendant, un grand nombre d'hommes aux Mlecchas et fit régner dans le pays les coutumes propres aux Mlecchas. » Ces indications coïncideraient avec les grands traits du récit que nous étudions. Entre les noms de Vajramukuṭa du Stotra et Vajrāditya des annales du Kasmir il n'y a que la différence du deuxième élément du nom ; Vajrāditya aurait régné dans le courant du huitième siècle, et Sarvajñamitra, élève de Ravigupta* et de Guṇaprabha, se place vers la fin du septième et au commencement du huitième siècle.
 
@@ -675,7 +675,7 @@ A Vikramaśīla se rattache aussi Jinarakṣita, l'auteur d'un des commentaires 
 
 « Fin de la glose de l'hymne bālārkā ... etc., composée par Jinarakṣita le bhikṣu, savant, guru royal, du grand vihāra de Vikramaśīla. »
 
-Jetāri* est un peu mieux connu que Bhavabhadra. C'est le fils du brahmane buddhiste Garbhapāda et d'une femme que ce dernier avait reçue du roi Sanātana, régnant dans le Varendra. Il se rattache aussi des miracles à son enfance.* Jetāri devint un upāsaka (laïc) fort versé dans les écritures, les lettres et la métrique. Il s'aperçoit un jour qu'il a été incrédule, se repent et voit la face de Tārā qui lui dit que ses péchés seront rachetés s'il compose beaucoup de śāstras du Mahāyāna.* Jetāri est l'auteur du _Bodhipratideśanāvṛtti_ et du _Sugatamahāvibhaṅgakārikā_* (ces deux ouvrages se trouvent dans le Tanjour) de commentaires : du _Śikṣāsamuccaya_, du (_Bodhi_) _Caryāvatāra_ (de Śāntideva), de l'_Akāśagarbhasūtra_ et d'environ une centaine de sūtras. Au temps du roi Mahāpāla on lui donna une belle résidence à Vṛkṣapurī ; à Vikramaśīla, il reçut son diplôme de paṇḍit.*
+Jetāri* est un peu mieux connu que Bhavabhadra. C'est le fils du brahmane bouddhiste Garbhapāda et d'une femme que ce dernier avait reçue du roi Sanātana, régnant dans le Varendra. Il se rattache aussi des miracles à son enfance.* Jetāri devint un upāsaka (laïc) fort versé dans les écritures, les lettres et la métrique. Il s'aperçoit un jour qu'il a été incrédule, se repent et voit la face de Tārā qui lui dit que ses péchés seront rachetés s'il compose beaucoup de śāstras du Mahāyāna.* Jetāri est l'auteur du _Bodhipratideśanāvṛtti_ et du _Sugatamahāvibhaṅgakārikā_* (ces deux ouvrages se trouvent dans le Tanjour) de commentaires : du _Śikṣāsamuccaya_, du (_Bodhi_) _Caryāvatāra_ (de Śāntideva), de l'_Akāśagarbhasūtra_ et d'environ une centaine de sūtras. Au temps du roi Mahāpāla on lui donna une belle résidence à Vṛkṣapurī ; à Vikramaśīla, il reçut son diplôme de paṇḍit.*
 
 *) Tār., p. 230.
 
@@ -719,7 +719,7 @@ Enfin, dans son quarante-troisième chapitre, où Tāranātha examine les source
 
 *) Tār., p. 278.
 
-*) Dārika, qui aurait été avant sa vocation religieuse le roi de Śalaputra, paraît avoir été un magicien très puissant, contemporain de Heruka, d'origine indoue, éléve de Nāropa dont l'histoire est racontée dans le _Livre des 84 sorciers_. Il usurpa le trône royal dans le pays d'Oḍiviśa. Il se rattache à l'école de Lūjipa. Ce dernier est un clef d'école dont l'histoire mystérieuse ouvre le _Livre des 84 sorciers_. (Tār., 127, 249, 315, 319.)
+*) Dārika, qui aurait été avant sa vocation religieuse le roi de Śalaputra, paraît avoir été un magicien très puissant, contemporain de Heruka, d'origine indoue, élève de Nāropa dont l'histoire est racontée dans le _Livre des 84 sorciers_. Il usurpa le trône royal dans le pays d'Oḍiviśa. Il se rattache à l'école de Lūjipa. Ce dernier est un clef d'école dont l'histoire mystérieuse ouvre le _Livre des 84 sorciers_. (Tār., 127, 249, 315, 319.)
 
 Si nous serrons de près l'étude des ācāryas auxquels le souvenir de Tārā reste attaché, nous constatons que nous nous trouvons en présence d'une suite de personnages qui se rattachent au Mantrayāna de beaucoup plus près qu'au Mahāyāna proprement dit : personnages dont la vie est fortement empreinte d'éléments merveilleux, thaumaturges mystiques, dont la puissance résidait dans la connaissance des formules magiques. Cette école était représentée par quelques noms restés célèbres. La tradition s'était transmise de Kāla et Rāhulabhadra jusqu'aux véritables magiciens Naropa, Dārika et Doṃbi, qui marquent l'apogée de ce mouvement. 
 
@@ -813,7 +813,7 @@ Pour établir le texte de l'_Ekaviṃśatistotra_, j'ai disposé des deux textes
 
 *) Voir Cowell et Eggeling. _J. of R. A. S._, n. s., t. 8, p. 25, et _Catalogue of sanscrit mss. collected by Hodgson_, p. 7 ; 1, 32.
 
-2\. Page 4 du manuscrit, add. 1551, Cambridge, intitulé _Dhāraṇīs_ sous titre : _Bhagavatyāryatārādevyā namaskāraikaviṃśatistotraṃ_.*
+2\. Page 4 du manuscrit, add. 1551, Cambridge, intitulé _Dhāraṇīs_ sous-titre : _Bhagavatyāryatārādevyā namaskāraikaviṃśatistotraṃ_.*
 
 *) M. le professeur Cowell a bien voulu faire pour moi la collation de ce manuscrit.
 
@@ -1320,7 +1320,7 @@ Om, Hommage à la vénérable Ārya Tārā.
 
 3\. --- Oui, c'est sur le chemin de tous les êtres que ta compassion qui ne fait point de distinction s'étend et elle les embrasse tous. --- Je suis sûr d'être de ceux-là. --- Ta puissance sans seconde est le disque solaire des ténèbres que sont les péchés du monde entier. --- Je suis un misérable, moi aussi le péché que j'ai commis me brûle ;--- oh, malheur à ce félon !
 
-4\. --- Malheur, malheur à moi ! l'obscurité qui m'environne ne se dissipe même pas à l'éclat du soleil ; je reste altéré au bord de la rive de la fille d'Himavat, cette rive froide et rocheuse enfloconnée de neige, dans les cavernes de laquelle sont des pierreries précieuses en grand nombre, c'est le chemin de l'Île aux Perles. --- Pauvre moi, qui suis sans protecteur, quoique ayant choisi, ô divinité, ta seigneurie, qui est l'unique soutien de tous les mondes.
+4\. --- Malheur, malheur à moi ! l'obscurité qui m'environne ne se dissipe même pas à l'éclat du soleil ; je reste altéré au bord de la rive de la fille d'Himavat, cette rive froide et rocheuse enflaconnée de neige, dans les cavernes de laquelle sont des pierreries précieuses en grand nombre, c'est le chemin de l'Île aux Perles. --- Pauvre moi, qui suis sans protecteur, quoique ayant choisi, ô divinité, ta seigneurie, qui est l'unique soutien de tous les mondes.
 
 5\. --- Une mère même se lasse, lorsque son fils pleure nombre de fois pour avoir du lait ; un père aussi s'irrite lorsque son fils demande chaque jour des choses qui ne sont pas ;--- mais toi, branche de l'arbre aux souhaits, qui donne pour fruits les désirs des trois mondes, tu donnes à tous ceux qui te prient des biens, et tu ne varies jamais.
 
@@ -1390,7 +1390,7 @@ Om, Hommage à la vénérable Ārya Tārā.
 
 36\. --- O toi qui es le croissant de lune manifesté sur l'océan de la joie du bien, donne-nous ta vue rafraîchissante, fais-nous croître par l'enseignement de la science, ô toi dont la compassion est intense, dissipe l'obscurité intérieure ; j'ai purifié mon cœur dans l'eau lustrale de ta louange, le salut unique est assuré pour moi, puisque l'éloge de tes vertus est la seule ressource infaillible des créatures.
 
-37\. --- En louant une fraction insignifiante de la foule de tes mérites j'obtiens un mérite spirituel, qui a la saveur du suc exquis du fruit du souhait du jour pur, pour en jouir jusqu'à la délivrance. Puisse le monde entier par ce même mérite s'en aller tout de suite vers la terre des fils de Sugata, terre qui porte la bienhou reuse empreinte du Svastika de la plante des pieds du noble seigneur du monde, terre qui a nom Sukhāvatī !
+37\. --- En louant une fraction insignifiante de la foule de tes mérites j'obtiens un mérite spirituel, qui a la saveur du suc exquis du fruit du souhait du jour pur, pour en jouir jusqu'à la délivrance. Puisse le monde entier par ce même mérite s'en aller tout de suite vers la terre des fils de Sugata, terre qui porte la bienheureuse empreinte du Svastika de la plante des pieds du noble seigneur du monde, terre qui a nom Sukhāvatī !
 
 ---
 
@@ -1600,7 +1600,7 @@ piśācarākṣasā bhūtā mātaro raudratejasaḥ ।51।
 
 *) B. --- bhayāni.
 
-*) Dans C. les hémistiches du v. 52 sont intervertis, et le secoud finit ainsi : kṛtyākārkoṭakādayaḥ ॥48॥.
+*) Dans C. les hémistiches du v. 52 sont intervertis, et le second finit ainsi : kṛtyākārkoṭakādayaḥ ॥48॥.
 
 chāyām api na laṅghante* kiṃ punas tasya vigrahaḥ ।  
 duṣṭasatvā na vādhante vyādhayo nākramanti ca ।53।
@@ -1833,7 +1833,7 @@ Ity āryatārābhaṭṭārikāyā nāmāṣṭottaraśatakaṃ buddhabhāṣita
 
 *) B. --- भयानि.
 
-*) Dans C. les hémistiches du v. 52 sont intervertis, et le secoud finit ainsi : कृत्याकार्कोटकादयः ॥48॥.
+*) Dans C. les hémistiches du v. 52 sont intervertis, et le second finit ainsi : कृत्याकार्कोटकादयः ॥48॥.
 
 छायाम् अपि न लङ्घन्ते* किं पुनस् तस्य विग्रहः ।  
 दुष्टसत्वा न वाधन्ते व्याधयो नाक्रमन्ति च ।५३।
@@ -1860,7 +1860,7 @@ Ity āryatārābhaṭṭārikāyā nāmāṣṭottaraśatakaṃ buddhabhāṣita
 
 Hommage à la glorieuse Ārya Tārā.
 
-Sur le noble Potalaka, qui est agréable, qui resplendit de l'éclat de divers minéraux, que recouvrent des lianes et des arbres variés, qui résonne des cris d'oiseaux de toutes sortes, --- 1. rendu bruyant par de nombreuses cascades, peuplé de gibier de toutes les espèces, que parfument de tous côtés les fleurs de jasmins et de lotus variés, --- 2. fourni de fruits délicieux et divers, tout plein du susurrement des abeilles et rempli des doux chants des kinnaras et des éléphants ivres, --- 3. fréquenté par des troupes de vidyādhāras, de saints et de gandharvas bruyants, et par les ascètes exempts de passions ; fréquenté aussi, éternellement, --- 4. par les foules des bodhisatvas et par les autres seigneurs des dix terres, et par des milliers de déesses et de reines de la science, à commencer par Ārya Tārā, --- 5. couvert par les troupes du roi de la Colère et d'autres, à commencer par Hayagrīva ; (sur ce Potalaka) le bienheureux Avalokita qui est attentif au bien de toutes les créatures, --- 6. se tenant sur le siège fait du cœur d'un lotus, le bienheureux était là, doué d'un grand ascétisme et plein de compassion et d'amitié. --- 7. Il enseignait la Loi dans cette grande assemblée des dieux. Étant venu vers lui, qui était assis là, Vajrapāṇi à la grande force --- 8. inspiré par la plus vive compassion, interrogea ainsi Avalokita : « Voleurs, serpents, lions, feu, éléphants, sont comme des flots qui rendent plus périlleux encore l'océan des transmigrations ;--- 9. ô Muni ! ces êtres y tombent noyés, liés par les lacets du saṃsāra qui entraînent les ténèbres, la haine et les passions ;--- 10. ce par quoi on est délivré du saṃsāra, dis-le-moi, ô grand Muni ! » 10. _bis_ Ainsi interpellé, Avalokita, le maître du monde, répondit --- une douce parole à Vajrapāṇi qui veille : « Écoute, souverain des Guhyakas, le sauveur Amitābha. --- 11. Les Mères du monde, nées par la puissance de mon recueillement, douées d'une grande pitié et attentives à sauver le monde, --- 12. semblables au soleil levant, ayant un éclat pareil à celui de la pleine lune, les Tārās illuminent les arbres avec les dieux, les asuras et les hommes, --- 13. elles font trembler les trois mondes, épouvantant les yakṣas et les rākṣasas. La déesse qui a en main un lotus bleu : N'aie pas peur, n'aie pas peur, ainsi dit-elle, --- 14. c'est pour protéger le monde que j'ai été créée par les jinas. Dans les fourrés quand les épées se croisent, quand le danger est pressant, --- 15. par le seul souvenir de mes noms, je protège toujours les créatures, je les ferai traverser, moi, ô protecteur, hors des grands flots et des craintes diverses, --- 16. C'est pourquoi sous le nom de Tārā, ils me célèbrent les taureaux des Munis, ayant fait l'añjali en forme de coupe, là, avec respect et émotion. » ... 17. Il (Vajrapāṇi) dit cette parole : « Dis les Cent huit noms qui ont été proclamés autrefois par les jinas, --- 18. par les seigneurs des dix terres, par les bodhisatvas qui sont doués de force surnaturelle, noms qui enlèvent tout péché, purs, qui portent bonheur, qui développent la splendeur, --- 19. qui donnent la richesse et les moissons, et qui accroissent aussi la prospérité et la santé ; au nom de ton amitié pour les créatures, fais cela, ô grand Muni. »
+Sur le noble Potalaka, qui est agréable, qui resplendit de l'éclat de divers minéraux, que recouvrent des lianes et des arbres variés, qui résonne des cris d'oiseaux de toutes sortes, --- 1. rendu bruyant par de nombreuses cascades, peuplé de gibier de toutes les espèces, que parfument de tous côtés les fleurs de jasmins et de lotus variés, --- 2. fourni de fruits délicieux et divers, tout plein du susurrement des abeilles et rempli des doux chants des kinnaras et des éléphants ivres, --- 3. fréquenté par des troupes de vidyādhāras, de saints et de gandharvas bruyants, et par les ascètes exempts de passions ; fréquenté aussi, éternellement, --- 4. par les foules des bodhisattvas et par les autres seigneurs des dix terres, et par des milliers de déesses et de reines de la science, à commencer par Ārya Tārā, --- 5. couvert par les troupes du roi de la Colère et d'autres, à commencer par Hayagrīva ; (sur ce Potalaka) le bienheureux Avalokita qui est attentif au bien de toutes les créatures, --- 6. se tenant sur le siège fait du cœur d'un lotus, le bienheureux était là, doué d'un grand ascétisme et plein de compassion et d'amitié. --- 7. Il enseignait la Loi dans cette grande assemblée des dieux. Étant venu vers lui, qui était assis là, Vajrapāṇi à la grande force --- 8. inspiré par la plus vive compassion, interrogea ainsi Avalokita : « Voleurs, serpents, lions, feu, éléphants, sont comme des flots qui rendent plus périlleux encore l'océan des transmigrations ;--- 9. ô Muni ! ces êtres y tombent noyés, liés par les lacets du saṃsāra qui entraînent les ténèbres, la haine et les passions ;--- 10. ce par quoi on est délivré du saṃsāra, dis-le-moi, ô grand Muni ! » 10. _bis_ Ainsi interpellé, Avalokita, le maître du monde, répondit --- une douce parole à Vajrapāṇi qui veille : « Écoute, souverain des Guhyakas, le sauveur Amitābha. --- 11. Les Mères du monde, nées par la puissance de mon recueillement, douées d'une grande pitié et attentives à sauver le monde, --- 12. semblables au soleil levant, ayant un éclat pareil à celui de la pleine lune, les Tārās illuminent les arbres avec les dieux, les asuras et les hommes, --- 13. elles font trembler les trois mondes, épouvantant les yakṣas et les rākṣasas. La déesse qui a en main un lotus bleu : N'aie pas peur, n'aie pas peur, ainsi dit-elle, --- 14. c'est pour protéger le monde que j'ai été créée par les jinas. Dans les fourrés quand les épées se croisent, quand le danger est pressant, --- 15. par le seul souvenir de mes noms, je protège toujours les créatures, je les ferai traverser, moi, ô protecteur, hors des grands flots et des craintes diverses, --- 16. C'est pourquoi sous le nom de Tārā, ils me célèbrent les taureaux des Munis, ayant fait l'añjali en forme de coupe, là, avec respect et émotion. » ... 17. Il (Vajrapāṇi) dit cette parole : « Dis les Cent huit noms qui ont été proclamés autrefois par les jinas, --- 18. par les seigneurs des dix terres, par les bodhisattvas qui sont doués de force surnaturelle, noms qui enlèvent tout péché, purs, qui portent bonheur, qui développent la splendeur, --- 19. qui donnent la richesse et les moissons, et qui accroissent aussi la prospérité et la santé ; au nom de ton amitié pour les créatures, fais cela, ô grand Muni. »
 
 20\. A ces paroles, le bienheureux Avalokita, souriant, jetant ses regards sur toutes les régions de l'horizon, d'un œil étincelant de bienveillance, --- 21. soulevant la main droite ornée d'un signe propice, dit à celui-ci, le grand sage :
 
@@ -1963,7 +1963,7 @@ v. 7. --- kulajvale.
 v. 8. --- sundani.  
 v. 10. --- māriṇi.  
 v. 12. --- abharaṇajvale.  
-Les vers des strophes de louange de la fin sont donnes dans un ordre different par le ms. B., mais le texte en est identique.
+Les vers des strophes de louange de la fin sont donnes dans un ordre diffèrent par le ms. B., mais le texte en est identique.
 
 ---
 
@@ -2064,13 +2064,13 @@ v. 7. --- कुलज्वले.
 v. 8. --- सुन्दनि.  
 v. 10. --- मारिणि.  
 v. 12. --- अभरणज्वले.  
-Les vers des strophes de louange de la fin sont donnes dans un ordre different par le ms. B., mais le texte en est identique.
+Les vers des strophes de louange de la fin sont donnes dans un ordre diffèrent par le ms. B., mais le texte en est identique.
 
 ---
 
 # 13\. Conclusion.
 
-Le buddhisme, à son origine, semble avoir été plutôt défavorable à l'élément féminin ; qu'on se rappelle les difficultés qui furent soulevées quand la mère adoptive du Buddha, Mahāprajāpati et les religieuses demandèrent à être admises officiellement dans la communauté et les reproches que dut essuyer Anānda, si nous en croyons les récits relatifs au premier concile, pour les avoir protégées.* Ces traits trahissent, soit chez les fondateurs de l'église une préoccupation déjà motivée par le danger d'une influence féminine, soit chez les rédacteurs du canon un esprit d'hostilité désireux de se légitimer par un appel au passé.
+Le bouddhisme, à son origine, semble avoir été plutôt défavorable à l'élément féminin ; qu'on se rappelle les difficultés qui furent soulevées quand la mère adoptive du Buddha, Mahāprajāpati et les religieuses demandèrent à être admises officiellement dans la communauté et les reproches que dut essuyer Anānda, si nous en croyons les récits relatifs au premier concile, pour les avoir protégées.* Ces traits trahissent, soit chez les fondateurs de l'église une préoccupation déjà motivée par le danger d'une influence féminine, soit chez les rédacteurs du canon un esprit d'hostilité désireux de se légitimer par un appel au passé.
 
 *) Voir Minayeff, trad. de M. de Pompignan, p. 35.
 
@@ -2080,26 +2080,26 @@ La fortune d'Ārya Tārā est la plus éclatante de toutes.
 
 La légende et l'étymologie sont d'accord pour donner à Tārā une double physionomie aisément réductible à l'unité.
 
-Le buddhisme rattache de préférence son nom à la forme causative de la racine _tar_, traverser ; Tārā est alors la déesse qui _fait traverser_ ; son nom éveille comme un écho dans l'imagination indienne la métaphore, usuelle au point d'être inaperçue, de l'Océan des existences. La série des transmigrations apparaît en effet à l'Hindou comme une mer infinie ; c'est à trouver le moyen d'en atteindre l'autre bord que la religion et la philosophie ont l'une et l'autre épuisé leurs ressources.
+Le bouddhisme rattache de préférence son nom à la forme causative de la racine _tar_, traverser ; Tārā est alors la déesse qui _fait traverser_ ; son nom éveille comme un écho dans l'imagination indienne la métaphore, usuelle au point d'être inaperçue, de l'Océan des existences. La série des transmigrations apparaît en effet à l'Hindou comme une mer infinie ; c'est à trouver le moyen d'en atteindre l'autre bord que la religion et la philosophie ont l'une et l'autre épuisé leurs ressources.
 
 Le brahmanisme, de son côté, connaît aussi une Tārā, soit que jaloux d'une déesse née en dehors de ses traditions il l'ait annexée au moyen d'une légende, soit que Tārā, l'épouse brillante de Bṛhaspati, mère de Buddha, eût déjà son histoire telle que nous la donnent les Purāṇas* ; il rattache son nom à la désignation générique de l'étoile, en sanscrit : _tārā, la claire_.
 
 *) Cf. Viṣṇupurāṇa, 4. 6, Bhāgavatapurāṇa, 9. 14, 4-8, et Harivansa, 25.  
-Voici le texte du Harivansa d'après la traduction de Langlois, t. 1, p. 113-114 : « Après s'être acquitté de la cérémonie qui complète le sacrifice, heureux et chéri de tous les Devarṣis, il (Soma) brilla parmi les rois dont il était le souverain, étendant sa lumière sur les dix régions du ciel. Mais à peine eut-il obtenu cette domination difficile à acquérir que les munis eux-mêmes avaient sanctionnée de leurs bénédictions, que sa raison se troubla, égarée par l'orgueil. Il enleva la glorieuse épouse de Vṛhaspati nommée Tārā, manquant ainsi au respect qu'il devait au fils d'Añgiras. En vain les dieux et les Rājarṣis vinrent le prier de réparer cet affront : il refusa de rendre Tārā. Le précepteur des dieux Vṛhaspati fut indigné de sa conduite et lui déclara la guerre. Uśanas se mit dans l'arrière-garde du fils d'Añgiras ; il avait été le disciple de Vṛhaspati plutôt que de Bhṛgu son père. Le dieu Rudra lui-même, par amitié pour son maître outragé, prit le commandement de cette arrière-garde et s'arma de son arc Ajagava ; il lança contre les dieux partisans de Soma un trait redoutable qui abattit tout leur orgueil. Alors se livra ce combat terrible auquel Tārā a donné son nom, combat sanglant également funeste aux Devas, aux Daityas et aux mondes. Ceux d'entre les dieux qui avaient échappé et les Tuṣitas se présentèrent devant Brahma, leur protecteur, maître suprême et éternel. Ce dieu arrêta Uśanas et Rudra, et rendit lui-même Tārā au fils d'Añgiras. Mais Vṛhaspati s'étant aperçu qu'elle était enceinte, lui dit : « Le sein de ma femme ne doit pas garder ce fruit. » Aussi-tôt il la débarrassa avec violence d'un enfant qui devait un jour être terrible pour ses ennemis et qui brilla comme un feu qui tombe sur une jonchée de roseaux. A peine était-il né qu'il offrait toute la beauté des dieux. En ce moment les Suras indécis dirent à Tārā : « Déclare la vérité, de qui est-il fils, de Soma ou de Vṛhaspati ? » A cette question des dieux, elle ne répondit rien de satisfaisant, son fils lui-même allait la punir par une imprécation, Brahma le retint et interrogea cette épouse embarrassée : « Tārā, lui dit-il, explique-toi sur la vérité, de qui est ce fils ? » Saluant Brahma avec respect elle répondit : « Il est fils de Soma. » Alors Soma embrassant ce fils, dit : « Voilà Budha ! (Mercure). »
+Voici le texte du Harivansa d'après la traduction de Langlois, t. 1, p. 113-114 : « Après s'être acquitté de la cérémonie qui complète le sacrifice, heureux et chéri de tous les Devarṣis, il (Soma) brilla parmi les rois dont il était le souverain, étendant sa lumière sur les dix régions du ciel. Mais à peine eut-il obtenu cette domination difficile à acquérir que les munis eux-mêmes avaient sanctionnée de leurs bénédictions, que sa raison se troubla, égarée par l'orgueil. Il enleva la glorieuse épouse de Vṛhaspati nommée Tārā, manquant ainsi au respect qu'il devait au fils d'Añgiras. En vain les dieux et les Rājarṣis vinrent le prier de réparer cet affront : il refusa de rendre Tārā. Le précepteur des dieux Vṛhaspati fut indigné de sa conduite et lui déclara la guerre. Uśanas se mit dans l'arrière-garde du fils d'Añgiras ; il avait été le disciple de Vṛhaspati plutôt que de Bhṛgu son père. Le dieu Rudra lui-même, par amitié pour son maître outragé, prit le commandement de cette arrière-garde et s'arma de son arc Ajagava ; il lança contre les dieux partisans de Soma un trait redoutable qui abattit tout leur orgueil. Alors se livra ce combat terrible auquel Tārā a donné son nom, combat sanglant également funeste aux Devas, aux Daityas et aux mondes. Ceux d'entre les dieux qui avaient échappé et les Tuṣitas se présentèrent devant Brahma, leur protecteur, maître suprême et éternel. Ce dieu arrêta Uśanas et Rudra, et rendit lui-même Tārā au fils d'Añgiras. Mais Vṛhaspati s'étant aperçu qu'elle était enceinte, lui dit : « Le sein de ma femme ne doit pas garder ce fruit. » Aussitôt il la débarrassa avec violence d'un enfant qui devait un jour être terrible pour ses ennemis et qui brilla comme un feu qui tombe sur une jonchée de roseaux. A peine était-il né qu'il offrait toute la beauté des dieux. En ce moment les Suras indécis dirent à Tārā : « Déclare la vérité, de qui est-il fils, de Soma ou de Vṛhaspati ? » A cette question des dieux, elle ne répondit rien de satisfaisant, son fils lui-même allait la punir par une imprécation, Brahma le retint et interrogea cette épouse embarrassée : « Tārā, lui dit-il, explique-toi sur la vérité, de qui est ce fils ? » Saluant Brahma avec respect elle répondit : « Il est fils de Soma. » Alors Soma embrassant ce fils, dit : « Voilà Budha ! (Mercure). »
 
 Ces deux aspects se sont facilement confondus : Tārā, gardera toujours l'empreinte de son origine ; nous avons vu qu'elle sauve constamment ses adeptes de l'eau ou par l'eau en les faisant atterrir en lieu sûr ; elle est aussi le guide fidèle, l'étoile du nautonier, _stella maris_ invoquée du navigateur.*
 
-*) Se représenter les buddhistes indiens hostiles à la navigation serait méconnaître un côté important de leur vie et le complément indispensable du caractère missionnaire de leur foi. La traversée à Laṅkā n'était pas la seule qui leur fût familière. Notre inscription javanaise en est une preuve, de même aussi la légende bien connue de Pūrṇa le vertueux (Burnouf, _Introd._, p. 235 et suiv.), qui permet de constater l'existence d'une corporation de marchands marins très puissamment organisée dans la ville de Sūrpāraka (au nord de Bombay). Il serait singulier qu'il n'en eût pas été de même dans bien d'autres villes maritimes commerçantes.
+*) Se représenter les bouddhistes indiens hostiles à la navigation serait méconnaître un côté important de leur vie et le complément indispensable du caractère missionnaire de leur foi. La traversée à Laṅkā n'était pas la seule qui leur fût familière. Notre inscription javanaise en est une preuve, de même aussi la légende bien connue de Pūrṇa le vertueux (Burnouf, _Introd._, p. 235 et suiv.), qui permet de constater l'existence d'une corporation de marchands marins très puissamment organisée dans la ville de Sūrpāraka (au nord de Bombay). Il serait singulier qu'il n'en eût pas été de même dans bien d'autres villes maritimes commerçantes.
 
-Les titres d'honneur que reçoit Tārā montrent le rang qu'elle occupe dans la savante hiérarchie buddhique :
+Les titres d'honneur que reçoit Tārā montrent le rang qu'elle occupe dans la savante hiérarchie bouddhique :
 
-Le plus fréquent de tous est : _āryā_, qui se joint à son nom jusqu'à en devenir un élément inséparable. Cette épithète désigne dans la langue technique de l'église buddhique le degré suprême de sainteté.*
+Le plus fréquent de tous est : _āryā_, qui se joint à son nom jusqu'à en devenir un élément inséparable. Cette épithète désigne dans la langue technique de l'église bouddhique le degré suprême de sainteté.*
 
 Tārā est souvent aussi qualifiée de _Bhaṭṭārikā, la princesse_. Ce mot est un document historique précis : Bhaṭṭārikā est le féminin du mot _Bhaṭṭāraka_, qui se rencontre à partir du sixième siècle dans les inscriptions pour désigner les mahārājas et les mahārajādhirajas (les rois vassaux ou les suzerains) et aussi les divinités de premier rang* ; il désigne les épouses de ces personnages.
 
 Une autre épithète qui est devenue comme un surnom de Tārā est _Sragdharā, la porteuse de guirlande_ ; c'est sans doute la popularité de ce nom qui a déterminé Sarvajñamitra à célébrer sa divinité préférée dans le mètre également appelé _Sragdharā_ ; le _Sragdharā stotra_ est en effet à la fois l'hymne à _Sragdharā_ et l'hymne en _Sragdharā_.
 
-L'extension rapide du culte de Tārā, soit en Chine, soit au Tibet, s'explique par l'histoire du monde buddhique à partir du sixième siècle : des pèlerins hardis parcouraient l'Asie tout entière et propageaient sur leur passage les doctrines, les croyances et les légendes recueillies au hasard de leur course. Fa-Hian, Hiouen-Tsang et I-Tsing symbolisent ce grand mouvement. Néanmoins il ne faudrait pas se représenter les éléments divers, ainsi transportés, comme se pénétrant aisément les uns les autres ; ils formaient une mosaïque et non point une unité compacte. Tandis que nos documents assignent à Tārā une place très éminente parmi les divinités buddhiques, c'est à peine si nous la voyons mentionnée dans le reste de la littérature étudiée jusqu'ici.
+L'extension rapide du culte de Tārā, soit en Chine, soit au Tibet, s'explique par l'histoire du monde bouddhique à partir du sixième siècle : des pèlerins hardis parcouraient l'Asie tout entière et propageaient sur leur passage les doctrines, les croyances et les légendes recueillies au hasard de leur course. Fa-Hian, Hiouen-Tsang et I-Tsing symbolisent ce grand mouvement. Néanmoins il ne faudrait pas se représenter les éléments divers, ainsi transportés, comme se pénétrant aisément les uns les autres ; ils formaient une mosaïque et non point une unité compacte. Tandis que nos documents assignent à Tārā une place très éminente parmi les divinités bouddhiques, c'est à peine si nous la voyons mentionnée dans le reste de la littérature étudiée jusqu'ici.
 
 La continuité du culte de Tārā nous est confirmée par quelques mentions de tīrthas de Tārā dans le _Svayaṃbhūpurāṇa_* et les titres de plusieurs tantras. (Voir page 6, note 1.)
 
@@ -2125,6 +2125,6 @@ Il faut mentionner aussi avec le sixième Dhyānibuddha Vajrasattva son épouse 
 
 Tārā n'est pas restée un type isolé, elle a de nombreuses sœurs, elle présente bien des traits communs avec les divinités féminines du tantrisme. Plus on se rapproche des pratiques tantriques, plus la différenciation entre chaque personnage divin devient difficile. Dans les stotras et dhāraṇīs les hymnes de Tārā se trouvent confondus pêle-mêle avec ceux de Mārici, Kurukullā, Vasundharā, Dhanadā, Saṃpatpradā, divinités féminines qui composent la classe tantrique des Vidyādevīs ou Māṭrkādevīs. Mais dans ces litanies interminables les personnages sont si vagues qu'on se demande si les noms représentent encore des individualités divines distinctes, ou bien s'ils ne sont plus que le souvenir incompris des personnages mythiques qui survivent ainsi aux vieux panthéons indiens pour aller se confondre dans l'océan de l'hindouisme.
 
-En résumé, Tārā est une divinité du buddhisme du Nord, dont le culte se propage en dehors de l'Inde dans toutes les régions où ce buddhisme est porté. Lorsque le buddhisme devient de plus en plus le culte adressé aux bodhisattvas et aux dhyānibuddhas, Tārā représente, sous forme de leur compagne, un élément féminin dont la prépondérance va croissant dans la croyance comme dans le rituel. Cet élément finira même par prévaloir sur le reste de ce panthéon composite.
+En résumé, Tārā est une divinité du bouddhisme du Nord, dont le culte se propage en dehors de l'Inde dans toutes les régions où ce bouddhisme est porté. Lorsque le bouddhisme devient de plus en plus le culte adressé aux bodhisattvas et aux dhyānibuddhas, Tārā représente, sous forme de leur compagne, un élément féminin dont la prépondérance va croissant dans la croyance comme dans le rituel. Cet élément finira même par prévaloir sur le reste de ce panthéon composite.
 
 **Fin.**
