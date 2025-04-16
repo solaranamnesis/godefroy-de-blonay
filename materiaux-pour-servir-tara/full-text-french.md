@@ -266,7 +266,7 @@ Les qualificatifs sont donnés en transcription et le texte sous forme de sūtra
 
 Le second texte donne aussi une transcription en caractères chinois d'un texte sanscrit, ayant pour titre : Chan-to-lo-pou-sa-fan-tsan équivalant au sanscrit : Ārya tārā bodhisattva saṃskṛta stotra, soit : _Éloge en sanscrit de la sainte Tārā bodhisattva_.*
 
-*). _Ta Ts'ang King_, b. 27, c. 13.
+*) _Ta Ts'ang King_, b. 27, c. 13.
 
 Le nombre des indications fournies par le bouddhisme chinois donne le droit de penser que le bouddhisme japonais a conservé aussi un souvenir plus ou moins vivace de Tārā. Malgré les efforts que nous avons tentés dans cette direction, à cause peut-être de l'insuffisance des moyens d'investigation dont nous disposions, il ne nous a pas été donné de suivre Tārā jusqu'au Japon.
 
