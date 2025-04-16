@@ -998,7 +998,7 @@ daivātikrāmanīṃ tvām kṛpaṇajanajanany artham abhyarthya bhūyo
 bhūmer nirvāntacāmīkaranikaranidhīn nirddhanā prāpnuvanti ॥
 
 23\. --- Vṛtticchede vilakṣaḥ kṣatanivasanayā bhāryayā bhart-  
-[syamāno  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[syamāno  
 dūrād ātmaṃbharitvāt svajanasutasuhṛdbandhubhir varjyamānaḥ ।  
 tvayy āvedya svaduḥkhaṃ turagakhuramukhotkhātasīmnāṃ gṛhāīṣṭe  
 svāntaḥpurastrīvalayajhaṇajhaṇājātanidrāprabodhaḥ ॥ [ṇām
@@ -1029,7 +1029,7 @@ mandākinyām amandacchaṭasalilasaritkrīḍayā sundarībhiḥ
 krīḍanti tvadgatāntaḥkaraṇapariṇatottaptapuṇyaprabhāvāḥ ॥
 
 29\. --- Gīrvāṇagrāmaṇībhir vinayabharanamanmaulibhir vandi-  
-[tājñaḥ  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[tājñaḥ  
 svargotsaṅge dhirūḍhaḥ surakariṇi raṇadbhūṣaṇodbhāsitāṅge ।  
 śacyā dordāmadolāviralavalayitoddāmaromāñcamūrtiḥ  
 pūtas tvaddṛṣṭipātair avati suramahīṃ hīrabhinnaprakoṣṭhaḥ ॥
@@ -1037,17 +1037,17 @@ pūtas tvaddṛṣṭipātair avati suramahīṃ hīrabhinnaprakoṣṭhaḥ ॥
 30\. --- Cūḍāratnāvataṃsāsanagatasugatavyomalakṣmīvitānaṃ  
 prodyadbālārkakoṭipaṭutarakiraṇāpūryamānatrilokam ।  
 prauḍhālīḍhaikapadaṃ kramabharainamadbrahmarudrendra-  
-[viṣṇu  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[viṣṇu  
 tvadrūpaṃ bhāvyamānaṃ bhavati bhavabhayocchittaye janma-  
-[bhājām ॥
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[bhājām ॥
 
 31\. --- Paśyanty eke sakopaṃ praharaṇakiraṇodgūrṇadordaṇḍa-
-[khaṇḍa-
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[khaṇḍa-
 vyāptavyomāntarālaṃ valayaphaṇiphaṇādāruṇāhāryacaryām ।
 dviṣṭavyuttrāsihāsoḍḍamaraḍamarukoḍḍāmarāsphālavelāvetālottālatālapramadamadamahākelikolāhalogram ॥
 
 32\. --- Kecit tv ekaikaromodgamagatagagaṇābhogabhūbhūtalasthasvasthabrahmendrarudraprabhṛtinaramarutsiddhagandharvanā-  
-[gam ।  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[gam ।  
 dikcakrākrāmidhāmasthitasugataśatānantanirmāṇacitram  
 citraṃ trailokyavandyaṃ sthiracararacitāśeṣabhāvasvabhāvam ॥
 
@@ -1055,7 +1055,7 @@ citraṃ trailokyavandyaṃ sthiracararacitāśeṣabhāvasvabhāvam ॥
 śrīmatsāndrendranīlopaladaladalitakṣodanīlaṃ tathānye ।  
 kṣīrābdhikṣubdhadugdhādhikataradhavalaṃ kāñcanābhaṃ ca kecit  
 tvadrūpaṃ viśvarūpaṃ sphaṭikavad upadhāyuktibhedād vibhin-  
-[nam ॥
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[nam ॥
 
 34\. --- Sārvajñajñānadīpaprakaṭitasakalajñeyatattvaikasākṣī  
 sākṣād vetti tvadīyāṃ guṇagaṇagaṇanāṃ sarvavit tatsuto vā ।  
@@ -1063,23 +1063,23 @@ yat tu vyādāya vaktraṃ valibhujaraṭitaṃ mādṛśo raṭīti
 vyāpat sā tīvraduḥkhajvarajanitarujaścetaso hāsyahetuḥ ॥
 
 35\. --- Yan me vijñapsyamānaṃ prathamataram adas tvaṃ viśe-  
-[ṣena vettrī  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[ṣena vettrī  
 tvatvyāhārātirekaśramavidhir abudhasvāntasaṃtoṣahetuḥ ।  
 kiṃ tu snigdhasya bandhor viṣaṃ iva purato duḥkham udgīrya  
-[vācā  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[vācā  
 jñātārthasyāpi duḥkhī hṛdayalaghutayā svasthatāṃ vindatīva ॥
 
 36\. --- Kalyāṇānandasindhuprakaṭaśaśikale śītalāṃ dehi dṛṣṭiṃ  
 puṣṭiṃ jñānopadeśaiḥ kuru ghanakaruṇe dhvaṃsaya dhvāntam-  
-[antaḥ ।  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[antaḥ ।  
 tvatstotrāṃbhaḥpavitrīkṛtamanasi mayi śreyasaḥ sthānam ekaṃ  
 dṛṣṭaṃ yasmād amoghaṃ jagati tava guṇastotramātraṃ prajā-  
-[nām ॥
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[nām ॥
 
 37\. --- Saṃstutya tvatguṇaughāvayavam aniyateyattam āptaṃ  
-[mayā yat ।  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[mayā yat ।  
 puṇyaṃ puṇyāhavāñchāphalamadhurarasāsvādam āmuktibho-  
-[gyam ।  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[gyam ।  
 lokas tenāryalokeśvaracaraṇatalasvastikasvasticihnām  
 ahnāyāyaṃ prayāyāt sugatasutamahīṃ tāṃ sukhāvatyupākhyām ॥
 
@@ -1222,7 +1222,93 @@ ahnāyāyaṃ prayāyāt sugatasutamahīṃ tāṃ sukhāvatyupākhyām ॥
 दैवातिक्रामनीं त्वाम् कृपणजनजनन्य् अर्थम् अभ्यर्थ्य भूयो  
 भूमेर् निर्वान्तचामीकरनिकरनिधीन् निर्द्धना प्राप्नुवन्ति ॥
 
-...
+23\. --- Vṛtticchede vilakṣaḥ kṣatanivasanayā bhāryayā bhart-  
+[syamāno  
+dūrād ātmaṃbharitvāt svajanasutasuhṛdbandhubhir varjyamānaḥ ।  
+tvayy āvedya svaduḥkhaṃ turagakhuramukhotkhātasīmnāṃ gṛhāīṣṭe  
+svāntaḥpurastrīvalayajhaṇajhaṇājātanidrāprabodhaḥ ॥ [ṇām
+
+24\. --- Cakraṃdikcakracumbi sphuradurukiraṇā lakṣaṇālaṃkṛtāstrī  
+saḍdanto dantimukhyaḥ śikhigalaruciraśyāmaromā varāśvaḥ ।  
+bhāsvadbhāsvanmayūkho maṇir amalaguṇaḥ koṣabhṛt pūrṇakoṣaḥ  
+senānīr vīrasainyo bhavati bhagavati tvatprasādāṃśaleśāt ॥
+
+25\. --- Svacchandaś candanāṃbhaḥsurabhimaṇiśilādattasaṃketakāntākrīḍānurāgād  
+abhinavaracitātithyatathyopacāraḥ । [kāntaḥ  
+tvadvidyālabdhasiddhir malayamadhuvanaṃ yāti vidyādharendraḥ  
+khaḍgāṃśuśyāmapīnonnatabhujaparigha prollasatpārihāryaḥ ॥
+
+26\. --- Hārākrāntastanāntāḥ śravaṇakuvalayaspardhamānāyatākṣā  
+mandārodāraveṇītaruṇaparimalāmoghamādyaddvirephāḥ ।  
+kācīnādānubandhoddhatataracaraṇodāramañjīratūryās  
+tvannāthaṃ prārthayante smaramadamuditāḥ sādarā devakanyāḥ ॥
+
+27\. --- Ratnacchannāntavāpīkanakakamalinīvajrakiñjalkamālām  
+unmajjatpārijātadrumadhuramadhūddhūtadhūlīvitānām ।  
+vīṇāveṇupravīṇāmarapuraramaṇīdattamādhūryatūryāṃ  
+kṛtvāyuṣmatsaparyām anubhavati ciraṃ nandanodyānayātrām ॥
+
+28\. --- Karpūrailālavaṅgatvagagarunaladakṣodagandhodakāyāṃ  
+dāntākandarpadarpotkaṭakucakuharāvartaviśrāntavīcyām ।  
+mandākinyām amandacchaṭasalilasaritkrīḍayā sundarībhiḥ  
+krīḍanti tvadgatāntaḥkaraṇapariṇatottaptapuṇyaprabhāvāḥ ॥
+
+29\. --- Gīrvāṇagrāmaṇībhir vinayabharanamanmaulibhir vandi-  
+[tājñaḥ  
+svargotsaṅge dhirūḍhaḥ surakariṇi raṇadbhūṣaṇodbhāsitāṅge ।  
+śacyā dordāmadolāviralavalayitoddāmaromāñcamūrtiḥ  
+pūtas tvaddṛṣṭipātair avati suramahīṃ hīrabhinnaprakoṣṭhaḥ ॥
+
+30\. --- Cūḍāratnāvataṃsāsanagatasugatavyomalakṣmīvitānaṃ  
+prodyadbālārkakoṭipaṭutarakiraṇāpūryamānatrilokam ।  
+prauḍhālīḍhaikapadaṃ kramabharainamadbrahmarudrendra-  
+[viṣṇu  
+tvadrūpaṃ bhāvyamānaṃ bhavati bhavabhayocchittaye janma-  
+[bhājām ॥
+
+31\. --- Paśyanty eke sakopaṃ praharaṇakiraṇodgūrṇadordaṇḍa-
+[khaṇḍa-
+vyāptavyomāntarālaṃ valayaphaṇiphaṇādāruṇāhāryacaryām ।
+dviṣṭavyuttrāsihāsoḍḍamaraḍamarukoḍḍāmarāsphālavelāvetālottālatālapramadamadamahākelikolāhalogram ॥
+
+32\. --- Kecit tv ekaikaromodgamagatagagaṇābhogabhūbhūtalasthasvasthabrahmendrarudraprabhṛtinaramarutsiddhagandharvanā-  
+[gam ।  
+dikcakrākrāmidhāmasthitasugataśatānantanirmāṇacitram  
+citraṃ trailokyavandyaṃ sthiracararacitāśeṣabhāvasvabhāvam ॥
+
+33\. --- Lākṣāsindūrarāgāruṇatarakiraṇādityalauhityam eke  
+śrīmatsāndrendranīlopaladaladalitakṣodanīlaṃ tathānye ।  
+kṣīrābdhikṣubdhadugdhādhikataradhavalaṃ kāñcanābhaṃ ca kecit  
+tvadrūpaṃ viśvarūpaṃ sphaṭikavad upadhāyuktibhedād vibhin-  
+[nam ॥
+
+34\. --- Sārvajñajñānadīpaprakaṭitasakalajñeyatattvaikasākṣī  
+sākṣād vetti tvadīyāṃ guṇagaṇagaṇanāṃ sarvavit tatsuto vā ।  
+yat tu vyādāya vaktraṃ valibhujaraṭitaṃ mādṛśo raṭīti  
+vyāpat sā tīvraduḥkhajvarajanitarujaścetaso hāsyahetuḥ ॥
+
+35\. --- Yan me vijñapsyamānaṃ prathamataram adas tvaṃ viśe-  
+[ṣena vettrī  
+tvatvyāhārātirekaśramavidhir abudhasvāntasaṃtoṣahetuḥ ।  
+kiṃ tu snigdhasya bandhor viṣaṃ iva purato duḥkham udgīrya  
+[vācā  
+jñātārthasyāpi duḥkhī hṛdayalaghutayā svasthatāṃ vindatīva ॥
+
+36\. --- Kalyāṇānandasindhuprakaṭaśaśikale śītalāṃ dehi dṛṣṭiṃ  
+puṣṭiṃ jñānopadeśaiḥ kuru ghanakaruṇe dhvaṃsaya dhvāntam-  
+[antaḥ ।  
+tvatstotrāṃbhaḥpavitrīkṛtamanasi mayi śreyasaḥ sthānam ekaṃ  
+dṛṣṭaṃ yasmād amoghaṃ jagati tava guṇastotramātraṃ prajā-  
+[nām ॥
+
+37\. --- Saṃstutya tvatguṇaughāvayavam aniyateyattam āptaṃ  
+[mayā yat ।  
+puṇyaṃ puṇyāhavāñchāphalamadhurarasāsvādam āmuktibho-  
+[gyam ।  
+lokas tenāryalokeśvaracaraṇatalasvastikasvasticihnām  
+ahnāyāyaṃ prayāyāt sugatasutamahīṃ tāṃ sukhāvatyupākhyām ॥
+
+---
 
 # 9\. Traduction.
 
