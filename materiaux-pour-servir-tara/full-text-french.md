@@ -1619,7 +1619,7 @@ sadāvirahito buddhair yatra yatropapadyate ।57।
 
 Ity āryatārābhaṭṭārikāyā nāmāṣṭottaraśatakaṃ buddhabhāṣitaṃ samāptam ।
 
-।śubham।
+। śubham ।
 
 ---
 
@@ -1852,7 +1852,7 @@ Ity āryatārābhaṭṭārikāyā nāmāṣṭottaraśatakaṃ buddhabhāṣita
 
 इत्य् आर्यताराभट्टारिकाया नामाष्टोत्तरशतकं बुद्धभाषितं समाप्तम् ।
 
-।शुभम्।
+। शुभम् ।
 
 ---
 
