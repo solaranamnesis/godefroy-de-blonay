@@ -874,6 +874,9 @@ Om namo bhagavatyai Āryatārāyai.
 1\. --- Bālārkālokatāmrapravarasuraśiraścārucūḍāmaṇiśrīsaṃpatsaṃparkarāganāticiraracitālaktakavyaktabhaktī ।  
 bhaktyā pādau tavārye karapuṭamukuṭātopabhugnottamāṅgas tāriṇy āpaccharaṇyair navanutikusumasragbhir abhyarcayāmi* ॥
 
+*) Commentaire du vers 1.  
+bālārketyādi he tāriṇi uddhāriṇi ārye pūjye tava bhavatyāḥ pādau caraṇau abhyarcayāmi pūjayāmi kena navanutiknusumasragbhir tavāstāṃ nutayaḥ tā eva kusumāni puṣpāni teṣāṃ srajo mālāḥ tābhiḥ he āpaccharaṇya vipaccharaṇya kīdṛśau pādau bālaḥ prathama udito yo sāv arkaḥ raviḥ tasya ālokaḥ uddyotanaṃ tadvat tāmrāḥ lohitāḥ pravarāṇāṃ pradhānānāṃ surāṇāṃśiraḥsu mūrdhasu cāravo darśanīyāḥ ye cūḍāmaṇayaḥ śikhāratnāni teṣāṃ yā śrīḥ kāntiḥ tasyā yāsau samṛddhiḥ. tatsaṃparkena tatsaṃyogena yo sau rāgaḥ rañjanaṃ tena nāticiraṃ svalpakālaṃ racitā digdhā alaktakasya vyaktā sphuṭā bhaktiḥ vicchitir yayos tāu katham arcayāmi bhaktyā sevayā kīdṛśo haṃ karapuṭena hastāñjalinā mukuṭe kiriṭe ya ātopo yogaḥ tena bhugnam ātamraṃ uttamāṅgaṃ śiro yasya saḥ । 1 ।
+
 2\. --- Durlaṅghe duḥkhavahnau vinipatitatanur durbhagaḥ kāṃ-  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[diśīkaḥ  
 kiṃ kiṃ mūḍhaḥ karomīty asakṛd api kṛtārambhavaiyarthya-  
