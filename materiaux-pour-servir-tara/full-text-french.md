@@ -26,25 +26,25 @@
 
 # [6\. Introduction du Commentaire de Jinarakṣita.](#6-introduction-du-commentaire-de-jinarakṣita-1)
 
-## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-1)
+## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-4)
 
 # [7\. Traduction.](#7-traduction-1)
 
 # [8\. Āryatārāsragdharāstotra.](#8-āryatārāsragdharāstotra-1)
 
-## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-1)
+## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-5)
 
 # [9\. Traduction.](#9-traduction-1)
 
 # [10\. Āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra.](#10-āryatārābhaṭṭārikānāmāṣṭottaraśatakastotra-1)
 
-## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-1)
+## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-6)
 
 # [11\. Traduction de la Liste des cent huit Noms d'Ārya Tārā.](#11-traduction-de-la-liste-des-cent-huit-noms-dārya-tārā-1)
 
 # [12\. Ekaviṃśatistotra.](#12-ekaviṃśatistotra-1)
 
-## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-1)
+## [_addendum editoris_ : Devanāgarī (देवनागरी).](#addendum-editoris--devanāgarī-देवनागरी-7)
 
 # [13\. Conclusion.](#13-conclusion-1)
 
