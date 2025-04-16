@@ -1222,91 +1222,91 @@ ahnāyāyaṃ prayāyāt sugatasutamahīṃ tāṃ sukhāvatyupākhyām ॥
 दैवातिक्रामनीं त्वाम् कृपणजनजनन्य् अर्थम् अभ्यर्थ्य भूयो  
 भूमेर् निर्वान्तचामीकरनिकरनिधीन् निर्द्धना प्राप्नुवन्ति ॥
 
-23\. --- Vṛtticchede vilakṣaḥ kṣatanivasanayā bhāryayā bhart-  
-[syamāno  
-dūrād ātmaṃbharitvāt svajanasutasuhṛdbandhubhir varjyamānaḥ ।  
-tvayy āvedya svaduḥkhaṃ turagakhuramukhotkhātasīmnāṃ gṛhāīṣṭe  
-svāntaḥpurastrīvalayajhaṇajhaṇājātanidrāprabodhaḥ ॥ [ṇām
+२३\. --- वृत्तिच्छेदे विलक्षः क्षतनिवसनया भार्यया भर्त्-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[स्यमानो  
+दूराद् आत्मंभरित्वात् स्वजनसुतसुहृद्बन्धुभिर् वर्ज्यमानः ।  
+त्वय्य् आवेद्य स्वदुःखं तुरगखुरमुखोत्खातसीम्नां गृहाीष्टे  
+स्वान्तःपुरस्त्रीवलयझणझणाजातनिद्राप्रबोधः ॥ [णाम्
 
-24\. --- Cakraṃdikcakracumbi sphuradurukiraṇā lakṣaṇālaṃkṛtāstrī  
-saḍdanto dantimukhyaḥ śikhigalaruciraśyāmaromā varāśvaḥ ।  
-bhāsvadbhāsvanmayūkho maṇir amalaguṇaḥ koṣabhṛt pūrṇakoṣaḥ  
-senānīr vīrasainyo bhavati bhagavati tvatprasādāṃśaleśāt ॥
+२४\. --- चक्रंदिक्चक्रचुम्बि स्फुरदुरुकिरणा लक्षणालंकृतास्त्री  
+सड्दन्तो दन्तिमुख्यः शिखिगलरुचिरश्यामरोमा वराश्वः ।  
+भास्वद्भास्वन्मयूखो मणिर् अमलगुणः कोषभृत् पूर्णकोषः  
+सेनानीर् वीरसैन्यो भवति भगवति त्वत्प्रसादांशलेशात् ॥
 
-25\. --- Svacchandaś candanāṃbhaḥsurabhimaṇiśilādattasaṃketakāntākrīḍānurāgād  
-abhinavaracitātithyatathyopacāraḥ । [kāntaḥ  
-tvadvidyālabdhasiddhir malayamadhuvanaṃ yāti vidyādharendraḥ  
-khaḍgāṃśuśyāmapīnonnatabhujaparigha prollasatpārihāryaḥ ॥
+२५\. --- स्वच्छन्दश् चन्दनांभःसुरभिमणिशिलादत्तसंकेतकान्ताक्रीडानुरागाद्  
+अभिनवरचितातिथ्यतथ्योपचारः । [कान्तः  
+त्वद्विद्यालब्धसिद्धिर् मलयमधुवनं याति विद्याधरेन्द्रः  
+खड्गांशुश्यामपीनोन्नतभुजपरिघ प्रोल्लसत्पारिहार्यः ॥
 
-26\. --- Hārākrāntastanāntāḥ śravaṇakuvalayaspardhamānāyatākṣā  
-mandārodāraveṇītaruṇaparimalāmoghamādyaddvirephāḥ ।  
-kācīnādānubandhoddhatataracaraṇodāramañjīratūryās  
-tvannāthaṃ prārthayante smaramadamuditāḥ sādarā devakanyāḥ ॥
+२६\. --- हाराक्रान्तस्तनान्ताः श्रवणकुवलयस्पर्धमानायताक्षा  
+मन्दारोदारवेणीतरुणपरिमलामोघमाद्यद्द्विरेफाः ।  
+काचीनादानुबन्धोद्धततरचरणोदारमञ्जीरतूर्यास्  
+त्वन्नाथं प्रार्थयन्ते स्मरमदमुदिताः सादरा देवकन्याः ॥
 
-27\. --- Ratnacchannāntavāpīkanakakamalinīvajrakiñjalkamālām  
-unmajjatpārijātadrumadhuramadhūddhūtadhūlīvitānām ।  
-vīṇāveṇupravīṇāmarapuraramaṇīdattamādhūryatūryāṃ  
-kṛtvāyuṣmatsaparyām anubhavati ciraṃ nandanodyānayātrām ॥
+२७\. --- रत्नच्छन्नान्तवापीकनककमलिनीवज्रकिञ्जल्कमालाम्  
+उन्मज्जत्पारिजातद्रुमधुरमधूद्धूतधूलीवितानाम् ।  
+वीणावेणुप्रवीणामरपुररमणीदत्तमाधूर्यतूर्यां  
+कृत्वायुष्मत्सपर्याम् अनुभवति चिरं नन्दनोद्यानयात्राम् ॥
 
-28\. --- Karpūrailālavaṅgatvagagarunaladakṣodagandhodakāyāṃ  
-dāntākandarpadarpotkaṭakucakuharāvartaviśrāntavīcyām ।  
-mandākinyām amandacchaṭasalilasaritkrīḍayā sundarībhiḥ  
-krīḍanti tvadgatāntaḥkaraṇapariṇatottaptapuṇyaprabhāvāḥ ॥
+२८\. --- कर्पूरैलालवङ्गत्वगगरुनलदक्षोदगन्धोदकायां  
+दान्ताकन्दर्पदर्पोत्कटकुचकुहरावर्तविश्रान्तवीच्याम् ।  
+मन्दाकिन्याम् अमन्दच्छटसलिलसरित्क्रीडया सुन्दरीभिः  
+क्रीडन्ति त्वद्गतान्तःकरणपरिणतोत्तप्तपुण्यप्रभावाः ॥
 
-29\. --- Gīrvāṇagrāmaṇībhir vinayabharanamanmaulibhir vandi-  
-[tājñaḥ  
-svargotsaṅge dhirūḍhaḥ surakariṇi raṇadbhūṣaṇodbhāsitāṅge ।  
-śacyā dordāmadolāviralavalayitoddāmaromāñcamūrtiḥ  
-pūtas tvaddṛṣṭipātair avati suramahīṃ hīrabhinnaprakoṣṭhaḥ ॥
+२९\. --- गीर्वाणग्रामणीभिर् विनयभरनमन्मौलिभिर् वन्दि-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[ताज्ञः  
+स्वर्गोत्सङ्गे धिरूढः सुरकरिणि रणद्भूषणोद्भासिताङ्गे ।  
+शच्या दोर्दामदोलाविरलवलयितोद्दामरोमाञ्चमूर्तिः  
+पूतस् त्वद्दृष्टिपातैर् अवति सुरमहीं हीरभिन्नप्रकोष्ठः ॥
 
-30\. --- Cūḍāratnāvataṃsāsanagatasugatavyomalakṣmīvitānaṃ  
-prodyadbālārkakoṭipaṭutarakiraṇāpūryamānatrilokam ।  
-prauḍhālīḍhaikapadaṃ kramabharainamadbrahmarudrendra-  
-[viṣṇu  
-tvadrūpaṃ bhāvyamānaṃ bhavati bhavabhayocchittaye janma-  
-[bhājām ॥
+३०\. --- चूडारत्नावतंसासनगतसुगतव्योमलक्ष्मीवितानं  
+प्रोद्यद्बालार्ककोटिपटुतरकिरणापूर्यमानत्रिलोकम् ।  
+प्रौढालीढैकपदं क्रमभरैनमद्ब्रह्मरुद्रेन्द्र-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[विष्णु  
+त्वद्रूपं भाव्यमानं भवति भवभयोच्छित्तये जन्म-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[भाजाम् ॥
 
-31\. --- Paśyanty eke sakopaṃ praharaṇakiraṇodgūrṇadordaṇḍa-
-[khaṇḍa-
-vyāptavyomāntarālaṃ valayaphaṇiphaṇādāruṇāhāryacaryām ।
-dviṣṭavyuttrāsihāsoḍḍamaraḍamarukoḍḍāmarāsphālavelāvetālottālatālapramadamadamahākelikolāhalogram ॥
+३१\. --- पश्यन्त्य् एके सकोपं प्रहरणकिरणोद्गूर्णदोर्दण्ड-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[खण्ड-  
+व्याप्तव्योमान्तरालं वलयफणिफणादारुणाहार्यचर्याम् ।  
+द्विष्टव्युत्त्रासिहासोड्डमरडमरुकोड्डामरास्फालवेलावेतालोत्तालतालप्रमदमदमहाकेलिकोलाहलोग्रम् ॥
 
-32\. --- Kecit tv ekaikaromodgamagatagagaṇābhogabhūbhūtalasthasvasthabrahmendrarudraprabhṛtinaramarutsiddhagandharvanā-  
-[gam ।  
-dikcakrākrāmidhāmasthitasugataśatānantanirmāṇacitram  
-citraṃ trailokyavandyaṃ sthiracararacitāśeṣabhāvasvabhāvam ॥
+३२\. --- केचित् त्व् एकैकरोमोद्गमगतगगणाभोगभूभूतलस्थस्वस्थब्रह्मेन्द्ररुद्रप्रभृतिनरमरुत्सिद्धगन्धर्वना-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[गम् ।  
+दिक्चक्राक्रामिधामस्थितसुगतशतानन्तनिर्माणचित्रम्  
+चित्रं त्रैलोक्यवन्द्यं स्थिरचररचिताशेषभावस्वभावम् ॥
 
-33\. --- Lākṣāsindūrarāgāruṇatarakiraṇādityalauhityam eke  
-śrīmatsāndrendranīlopaladaladalitakṣodanīlaṃ tathānye ।  
-kṣīrābdhikṣubdhadugdhādhikataradhavalaṃ kāñcanābhaṃ ca kecit  
-tvadrūpaṃ viśvarūpaṃ sphaṭikavad upadhāyuktibhedād vibhin-  
-[nam ॥
+३३\. --- लाक्षासिन्दूररागारुणतरकिरणादित्यलौहित्यम् एके  
+श्रीमत्सान्द्रेन्द्रनीलोपलदलदलितक्षोदनीलं तथान्ये ।  
+क्षीराब्धिक्षुब्धदुग्धाधिकतरधवलं काञ्चनाभं च केचित्  
+त्वद्रूपं विश्वरूपं स्फटिकवद् उपधायुक्तिभेदाद् विभिन्-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[नम् ॥
 
-34\. --- Sārvajñajñānadīpaprakaṭitasakalajñeyatattvaikasākṣī  
-sākṣād vetti tvadīyāṃ guṇagaṇagaṇanāṃ sarvavit tatsuto vā ।  
-yat tu vyādāya vaktraṃ valibhujaraṭitaṃ mādṛśo raṭīti  
-vyāpat sā tīvraduḥkhajvarajanitarujaścetaso hāsyahetuḥ ॥
+३४\. --- सार्वज्ञज्ञानदीपप्रकटितसकलज्ञेयतत्त्वैकसाक्षी  
+साक्षाद् वेत्ति त्वदीयां गुणगणगणनां सर्ववित् तत्सुतो वा ।  
+यत् तु व्यादाय वक्त्रं वलिभुजरटितं मादृशो रटीति  
+व्यापत् सा तीव्रदुःखज्वरजनितरुजश्चेतसो हास्यहेतुः ॥
 
-35\. --- Yan me vijñapsyamānaṃ prathamataram adas tvaṃ viśe-  
-[ṣena vettrī  
-tvatvyāhārātirekaśramavidhir abudhasvāntasaṃtoṣahetuḥ ।  
-kiṃ tu snigdhasya bandhor viṣaṃ iva purato duḥkham udgīrya  
-[vācā  
-jñātārthasyāpi duḥkhī hṛdayalaghutayā svasthatāṃ vindatīva ॥
+३५\. --- यन् मे विज्ञप्स्यमानं प्रथमतरम् अदस् त्वं विशे-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[षेन वेत्त्री  
+त्वत्व्याहारातिरेकश्रमविधिर् अबुधस्वान्तसंतोषहेतुः ।  
+किं तु स्निग्धस्य बन्धोर् विषं इव पुरतो दुःखम् उद्गीर्य  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[वाचा  
+ज्ञातार्थस्यापि दुःखी हृदयलघुतया स्वस्थतां विन्दतीव ॥
 
-36\. --- Kalyāṇānandasindhuprakaṭaśaśikale śītalāṃ dehi dṛṣṭiṃ  
-puṣṭiṃ jñānopadeśaiḥ kuru ghanakaruṇe dhvaṃsaya dhvāntam-  
-[antaḥ ।  
-tvatstotrāṃbhaḥpavitrīkṛtamanasi mayi śreyasaḥ sthānam ekaṃ  
-dṛṣṭaṃ yasmād amoghaṃ jagati tava guṇastotramātraṃ prajā-  
-[nām ॥
+३६\. --- कल्याणानन्दसिन्धुप्रकटशशिकले शीतलां देहि दृष्टिं  
+पुष्टिं ज्ञानोपदेशैः कुरु घनकरुणे ध्वंसय ध्वान्तम्-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[न्तः ।  
+त्वत्स्तोत्रांभःपवित्रीकृतमनसि मयि श्रेयसः स्थानम् एकं  
+दृष्टं यस्माद् अमोघं जगति तव गुणस्तोत्रमात्रं प्रजा-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[नाम् ॥
 
-37\. --- Saṃstutya tvatguṇaughāvayavam aniyateyattam āptaṃ  
-[mayā yat ।  
-puṇyaṃ puṇyāhavāñchāphalamadhurarasāsvādam āmuktibho-  
-[gyam ।  
-lokas tenāryalokeśvaracaraṇatalasvastikasvasticihnām  
-ahnāyāyaṃ prayāyāt sugatasutamahīṃ tāṃ sukhāvatyupākhyām ॥
+३७\. --- संस्तुत्य त्वत्गुणौघावयवम् अनियतेयत्तम् आप्तं  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[मया यत् ।  
+पुण्यं पुण्याहवाञ्छाफलमधुररसास्वादम् आमुक्तिभो-  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[ग्यम् ।  
+लोकस् तेनार्यलोकेश्वरचरणतलस्वस्तिकस्वस्तिचिह्नाम्  
+अह्नायायं प्रयायात् सुगतसुतमहीं तां सुखावत्युपाख्याम् ॥
 
 ---
 
