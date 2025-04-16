@@ -533,7 +533,7 @@ Vinītasena,* contemporain du précédent et de Candragomin, nous est très peu 
 
 Candragomin* est le plus illustre personnage de l'époque qui se rattache au culte de Tārā, d'une façon même très intime, car c'est avec Sarvajñamitra celui dont Tāranātha raconte les aventures avec le plus de soin.
 
-*) Minayef a publié une étude sur Candragomin et ses œuvres. V. Bulletin de l'Acad. de Saint-Pétersbourg, v. 4, p. 294, dont on trouvera un résumé dans l'_Indian Antiquary_, octobre 1890, p. 319.
+*) Minayeff a publié une étude sur Candragomin et ses œuvres. V. Bulletin de l'Acad. de Saint-Pétersbourg, v. 4, p. 294, dont on trouvera un résumé dans l'_Indian Antiquary_, octobre 1890, p. 319.
 
 Tāranātha mentionne Candragomin parmi les six joyaux du Jambudvīpa.* A la naissance de Candragomin, à Varendra, dans l'ouest,* se rattache une légende étrange, qui donne dès l'abord une couleur mystique à toute l'histoire de l'ācārya : Durant sept ans il ne parle point, et ne prend ensuite la parole que pour défendre la religion contre les attaques d'un maître Tīrthya.*
 
