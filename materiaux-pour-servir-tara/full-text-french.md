@@ -997,7 +997,93 @@ prāgjanmopāttapuṇyopacitaśubhaphalaṃ vittam aprāpnuvantaḥ ।
 daivātikrāmanīṃ tvām kṛpaṇajanajanany artham abhyarthya bhūyo  
 bhūmer nirvāntacāmīkaranikaranidhīn nirddhanā prāpnuvanti ॥
 
-...
+23\. --- Vṛtticchede vilakṣaḥ kṣatanivasanayā bhāryayā bhart-  
+[syamāno  
+dūrād ātmaṃbharitvāt svajanasutasuhṛdbandhubhir varjyamānaḥ ।  
+tvayy āvedya svaduḥkhaṃ turagakhuramukhotkhātasīmnāṃ gṛhāīṣṭe  
+svāntaḥpurastrīvalayajhaṇajhaṇājātanidrāprabodhaḥ ॥ [ṇām
+
+24\. --- Cakraṃdikcakracumbi sphuradurukiraṇā lakṣaṇālaṃkṛtāstrī  
+saḍdanto dantimukhyaḥ śikhigalaruciraśyāmaromā varāśvaḥ ।  
+bhāsvadbhāsvanmayūkho maṇir amalaguṇaḥ koṣabhṛt pūrṇakoṣaḥ  
+senānīr vīrasainyo bhavati bhagavati tvatprasādāṃśaleśāt ॥
+
+25\. --- Svacchandaś candanāṃbhaḥsurabhimaṇiśilādattasaṃketakāntākrīḍānurāgād  
+abhinavaracitātithyatathyopacāraḥ । [kāntaḥ  
+tvadvidyālabdhasiddhir malayamadhuvanaṃ yāti vidyādharendraḥ  
+khaḍgāṃśuśyāmapīnonnatabhujaparigha prollasatpārihāryaḥ ॥
+
+26\. --- Hārākrāntastanāntāḥ śravaṇakuvalayaspardhamānāyatākṣā  
+mandārodāraveṇītaruṇaparimalāmoghamādyaddvirephāḥ ।  
+kācīnādānubandhoddhatataracaraṇodāramañjīratūryās  
+tvannāthaṃ prārthayante smaramadamuditāḥ sādarā devakanyāḥ ॥
+
+27\. --- Ratnacchannāntavāpīkanakakamalinīvajrakiñjalkamālām  
+unmajjatpārijātadrumadhuramadhūddhūtadhūlīvitānām ।  
+vīṇāveṇupravīṇāmarapuraramaṇīdattamādhūryatūryāṃ  
+kṛtvāyuṣmatsaparyām anubhavati ciraṃ nandanodyānayātrām ॥
+
+28\. --- Karpūrailālavaṅgatvagagarunaladakṣodagandhodakāyāṃ  
+dāntākandarpadarpotkaṭakucakuharāvartaviśrāntavīcyām ।  
+mandākinyām amandacchaṭasalilasaritkrīḍayā sundarībhiḥ  
+krīḍanti tvadgatāntaḥkaraṇapariṇatottaptapuṇyaprabhāvāḥ ॥
+
+29\. --- Gīrvāṇagrāmaṇībhir vinayabharanamanmaulibhir vandi-  
+[tājñaḥ  
+svargotsaṅge dhirūḍhaḥ surakariṇi raṇadbhūṣaṇodbhāsitāṅge ।  
+śacyā dordāmadolāviralavalayitoddāmaromāñcamūrtiḥ  
+pūtas tvaddṛṣṭipātair avati suramahīṃ hīrabhinnaprakoṣṭhaḥ ॥
+
+30\. --- Cūḍāratnāvataṃsāsanagatasugatavyomalakṣmīvitānaṃ  
+prodyadbālārkakoṭipaṭutarakiraṇāpūryamānatrilokam ।  
+prauḍhālīḍhaikapadaṃ kramabharainamadbrahmarudrendra-  
+[viṣṇu  
+tvadrūpaṃ bhāvyamānaṃ bhavati bhavabhayocchittaye janma-  
+[bhājām ॥
+
+31\. --- Paśyanty eke sakopaṃ praharaṇakiraṇodgūrṇadordaṇḍa-
+[khaṇḍa-
+vyāptavyomāntarālaṃ valayaphaṇiphaṇādāruṇāhāryacaryām ।
+dviṣṭavyuttrāsihāsoḍḍamaraḍamarukoḍḍāmarāsphālavelāvetālottālatālapramadamadamahākelikolāhalogram ॥
+
+32\. --- Kecit tv ekaikaromodgamagatagagaṇābhogabhūbhūtalasthasvasthabrahmendrarudraprabhṛtinaramarutsiddhagandharvanā-  
+[gam ।  
+dikcakrākrāmidhāmasthitasugataśatānantanirmāṇacitram  
+citraṃ trailokyavandyaṃ sthiracararacitāśeṣabhāvasvabhāvam ॥
+
+33\. --- Lākṣāsindūrarāgāruṇatarakiraṇādityalauhityam eke  
+śrīmatsāndrendranīlopaladaladalitakṣodanīlaṃ tathānye ।  
+kṣīrābdhikṣubdhadugdhādhikataradhavalaṃ kāñcanābhaṃ ca kecit  
+tvadrūpaṃ viśvarūpaṃ sphaṭikavad upadhāyuktibhedād vibhin-  
+[nam ॥
+
+34\. --- Sārvajñajñānadīpaprakaṭitasakalajñeyatattvaikasākṣī  
+sākṣād vetti tvadīyāṃ guṇagaṇagaṇanāṃ sarvavit tatsuto vā ।  
+yat tu vyādāya vaktraṃ valibhujaraṭitaṃ mādṛśo raṭīti  
+vyāpat sā tīvraduḥkhajvarajanitarujaścetaso hāsyahetuḥ ॥
+
+35\. --- Yan me vijñapsyamānaṃ prathamataram adas tvaṃ viśe-  
+[ṣena vettrī  
+tvatvyāhārātirekaśramavidhir abudhasvāntasaṃtoṣahetuḥ ।  
+kiṃ tu snigdhasya bandhor viṣaṃ iva purato duḥkham udgīrya  
+[vācā  
+jñātārthasyāpi duḥkhī hṛdayalaghutayā svasthatāṃ vindatīva ॥
+
+36\. --- Kalyāṇānandasindhuprakaṭaśaśikale śītalāṃ dehi dṛṣṭiṃ  
+puṣṭiṃ jñānopadeśaiḥ kuru ghanakaruṇe dhvaṃsaya dhvāntam-  
+[antaḥ ।  
+tvatstotrāṃbhaḥpavitrīkṛtamanasi mayi śreyasaḥ sthānam ekaṃ  
+dṛṣṭaṃ yasmād amoghaṃ jagati tava guṇastotramātraṃ prajā-  
+[nām ॥
+
+37\. --- Saṃstutya tvatguṇaughāvayavam aniyateyattam āptaṃ  
+[mayā yat ।  
+puṇyaṃ puṇyāhavāñchāphalamadhurarasāsvādam āmuktibho-  
+[gyam ।  
+lokas tenāryalokeśvaracaraṇatalasvastikasvasticihnām  
+ahnāyāyaṃ prayāyāt sugatasutamahīṃ tāṃ sukhāvatyupākhyām ॥
+
+---
 
 # 8\. _addendum editoris_ : Devanāgarī (देवनागरी).*
 
