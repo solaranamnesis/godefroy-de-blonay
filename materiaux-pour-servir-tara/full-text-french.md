@@ -607,7 +607,7 @@ En regard du récit très détaillé de Tāranātha nous pourrions placer l'intr
 
 D'autre part, nous trouvons dans la _Rājataraṅgiṇī_* la mention suivante :
 
-« Le mendiant religieux Sarvajñamitra s'éleva dans ce couvent (de Kayya*) à la dignité de Jina. »
+« Le mendiant religieux Sarvajñamitra s'éleva dans ce couvent (de Kayya* ) à la dignité de Jina. »
 
 *) _Rājataraṅgiṇī_, l. 4, v. 210.  
 śrīmān kayyavihāro'pi tenaiva vidadhe' dbhutaḥ ।  
