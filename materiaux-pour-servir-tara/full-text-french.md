@@ -585,7 +585,7 @@ Une dernière fois enfin, Tārā sauve la vie de son fidèle disciple à peu pr�
 
 Peu après Candragomin, presque son contemporain, il faut citer l'auteur de notre _Sragdharā stotra_, Sarvajñamitra, comme un des plus notables adeptes de Tārā ; différents documents nous le font connaître.
 
-Nous apprenons par Tāranātha qu'il était élève de Guṇaprabha (mentionné par I-Tsing parmi ses contemporains*) et vivait au Kasmir tandis que régnaient le roi Cala à l'Ouest, et le roi Pañcamasiṃha, fils de Bharṣa, à l'Est et au Nord jusqu'au Tibet.*
+Nous apprenons par Tāranātha qu'il était élève de Guṇaprabha (mentionné par I-Tsing parmi ses contemporains* ) et vivait au Kasmir tandis que régnaient le roi Cala à l'Ouest, et le roi Pañcamasiṃha, fils de Bharṣa, à l'Est et au Nord jusqu'au Tibet.*
 
 *) Au septième siècle ; cf. _Deux Chapitres extraits des Mémoires d'I-Tsing_, traduit par Ryauon Fujishima. _J. A._, 1888 2, p. 435.
 
